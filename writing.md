@@ -21,7 +21,7 @@ permalink: /writing/
 [Intervju sa Višeslavom Radenkovićem]() za portal Before After o video aktivizmu  
 Osvrt na Skupljače perja Aleksandra Petrovića [Snovi o slobodi ili daleko je Amerikkka]() u skraćenoj verziji prenet na portalu Peščanik, objavljen u časopisu ПРИЗОР, broj 13. 2014.  
 O urbanističkom projektu “Beograd na vodi”, sa portala Peščanik: [Krv nije voda](), [Beograd na steroidima]()  
-Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. [Bunt u Velikoj Britaniji – ovo je samo početak]()  
+Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. [Bunt u Velikoj Britaniji – ovo je samo početak](http://www.pecat.co.rs/2011/01/bunt-u-v-britaniji-ovo-je-samo-pocetak/)  
 
 **_Texts that should be available elsewhere_**
 
