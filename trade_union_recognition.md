@@ -132,7 +132,7 @@ APPENDIX A
 
 Results of petition in support of union recognition for BECTU at Curzon World from CAC TUR1/853/(2013)
 
-![table](/images/tableRITZY.jpg/)  
+![table](/images/tableritzy.jpg/)  
 
 A The name of the relevant subsidiary company.
 
