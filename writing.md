@@ -1,4 +1,4 @@
-http://pescanik.net/2014/03/krv-nije-voda/---
+---
 layout: page
 title: Writing
 permalink: /writing/
