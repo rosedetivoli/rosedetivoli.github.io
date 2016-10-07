@@ -4,6 +4,8 @@ title: Writing
 permalink: /writing/
 ---
 
+![speaking](/images/rnitorijevci.jpg)  
+
 **_In English_**
 
 [How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?]()  
