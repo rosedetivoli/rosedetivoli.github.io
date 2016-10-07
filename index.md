@@ -2,5 +2,5 @@
 layout: default
 ---
 
-![image description](/images/aboutrastko.jpg)
+![home](/images/aboutrastko.jpg)
 
