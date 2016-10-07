@@ -3,7 +3,7 @@ layout: page
 permalink: /movies/
 ---
 
-## _Movies_
+_Movies_
 
 For a full list, see this page. View and read about the following, by browsing the links below:
 
