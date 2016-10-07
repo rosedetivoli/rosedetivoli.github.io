@@ -8,7 +8,7 @@ permalink: /writing/
 
 **_In English_**
 
-[How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://razbigor.github.io/trade_union_recognition.md)  
+[How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://razbigor.github.io/trade_union_recognition)  
 [On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best)  
 [An essay on the making of lebensraum | living space]()  
 [On Belgrade street protests in 1996/1997 The Body Electric](http://pescanik.net/2008/06/the-body-electric/)  
