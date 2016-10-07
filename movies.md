@@ -3,7 +3,7 @@ layout: page
 permalink: /movies/
 ---
 
-![blue](/images/blue.jpg)  ![red](/images/red.jpg)  
+![blue](/images/blue.jpg) ![red](/images/blue.jpg)  
 
 
 **_Movies_**  
