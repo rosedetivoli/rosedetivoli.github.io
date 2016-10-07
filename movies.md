@@ -6,9 +6,6 @@ permalink: /movies/
 
 ![blue](/images/blue.jpg) ![red](/images/red.jpg)  
 
-
-**_Movies_**  
-
 For a full list, see [this page](). View and read about the following, by browsing the links below:
 
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
