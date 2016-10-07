@@ -132,29 +132,7 @@ APPENDIX A
 
 Results of petition in support of union recognition for BECTU at Curzon World from CAC TUR1/853/(2013)
 
-A |	B |	C |	D |	E |	F  
---- | --- | --- | --- | --- | ---  
-Curzon Film World Limited |	14 |	0/0% | 1 | 7.14% | 0 | 0% |	1 | 7.14%
-Chelsea Cinema Limited 	14 	5
-35.17% 	10
-71% 	3
-21% 	7
-50%
-Renoir Cinema Ltd 	15 	3
-20% 	11
-73% 	3
-20% 	8
-53%
-Showcase Cinemas Limited 	8 	2
-25% 	8
-100% 	2
-25% 	6
-75%
-Curzon Cinemas Limited 	113 	47
-41.59% 	67
-59.29% 	43
-38.05% 	24
-21.24%
+![table](/images/tableRITZY.jpg/)
 
 A The name of the relevant subsidiary company.
 
