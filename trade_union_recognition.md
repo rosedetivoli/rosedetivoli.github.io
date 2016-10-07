@@ -133,7 +133,7 @@ APPENDIX A
 Results of petition in support of union recognition for BECTU at Curzon World from CAC TUR1/853/(2013)
 
 A |	B |	C |	D |	E |	F
---- | --- | --- | --- | --- | ---
+--- | --- | ---
 Curzon Film World Limited |	14 |	0/0% | 1 | 7.14% | 0 | 0% |	1 | 7.14%
 Chelsea Cinema Limited 	14 	5
 35.17% 	10
