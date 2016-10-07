@@ -1,8 +1,9 @@
 ---
 layout: page
-title: _Movies_
 permalink: /movies/
 ---
+
+## _Movies_
 
 For a full list, see this page. View and read about the following, by browsing the links below:
 
