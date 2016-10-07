@@ -4,7 +4,7 @@ title: How have the law on trade union recognition and its interpretation affect
 permalink: /trade_union_recognition/
 ---
 
-
+![table](/images/tableRITZY.jpg/)
 
 In recent years, the media union BECTU has been making progress in gaining recognition within the cinema sector and negotiating pay rises and stable contracts for cinema workers. The successes have been due to a mixture of campaigning, industrial action and use of the recognition process. As we will see, these often overlap and work side by side. Exploiting and attacking the self-proclaimed ‘ethical’ or ‘independent’ values of the brands of companies within which the union is organising has been a successful tactic.[1] In this essay I will explore the effectiveness and pitfalls of trade union recognition through two examples: the Curzon workers’ success in gaining recognition and winning the Living Wage and the failure of Picturehouse workers to gain recognition at Clapham Picturehouse, coming out of a formidable struggle at the Ritzy cinema (which is also part of the Picturehouse chain).
 
