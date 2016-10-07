@@ -1,6 +1,6 @@
 ---
 layout: page
-title: MOVIES
+title: _Movies_
 permalink: /movies/
 ---
 
