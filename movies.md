@@ -4,8 +4,6 @@ title: Movies
 permalink: /movies/
 ---
 
-## Movies
-
 For a full list, see this page. View and read about the following, by browsing the links below:
 
 Concrete Heart Land (with Steven Ball, 2014)  
