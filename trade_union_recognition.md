@@ -12,37 +12,37 @@ Trade union recognition in a workplace ensures that the trade union is a an offi
 
 2013
 
-April                Curzon workers start public campaign for recognition in 10 cinemas across the country and for the Living Wage (LW)[6]
+**April**                Curzon workers start public campaign for recognition in 10 cinemas across the country and for the Living Wage (LW)[6]
 
-August            Formal request for voluntary recognition at Curzon made by BECTU; within a week management announces a pay rise; the workers decide to pursue the application; pay negotiations start at the Ritzy cinema (run by Picturehouse Cinemas but owned by Cineworld since December 2012), the workers asking for the LW
+**August**            Formal request for voluntary recognition at Curzon made by BECTU; within a week management announces a pay rise; the workers decide to pursue the application; pay negotiations start at the Ritzy cinema (run by Picturehouse Cinemas but owned by Cineworld since December 2012), the workers asking for the LW
 
-October           Formal application to CAC made for statutory recognition at Curzon World
+**October**           Formal application to CAC made for statutory recognition at Curzon World
 
-November       Curzon accepts ‘in principle’ voluntary recognition of BECTU[7]
+**November**       Curzon accepts ‘in principle’ voluntary recognition of BECTU[7]
 
-December       CAC accepts BECTU application for recognition at Curzon World[8]
+**December**       CAC accepts BECTU application for recognition at Curzon World[8]
 
 2014
 
-January           Method of collective negotiation agreed and signed between BECTU and Curzon World, BECTU withdraws the application for statutory recognition
+**January**           Method of collective negotiation agreed and signed between BECTU and Curzon World, BECTU withdraws the application for statutory recognition
 
-March             Pay negotiations break down and strikes start at Ritzy cinema
+**March**             Pay negotiations break down and strikes start at Ritzy cinema
 
-July                 A boycott of Picturehouse Cinemas starts called by BECTU and supported by the TUC; a Cinema Workers rally held in London which sees workers from across the nation gathering in London to campaign for the LW and to raise the profile of trade unionism in the cinema sector[9]
+**July**                 A boycott of Picturehouse Cinemas starts called by BECTU and supported by the TUC; a Cinema Workers rally held in London which sees workers from across the nation gathering in London to campaign for the LW and to raise the profile of trade unionism in the cinema sector[9]
 
-September     After 13 strikes, Ritzy workers negotiate a pay deal which falls short of the living wage
+**September**     After 13 strikes, Ritzy workers negotiate a pay deal which falls short of the living wage
 
-October           Picturehouse management announces redundancies as the cost of negotiated increased wages at the Ritzy; a day later, Curzon management promises to pay LW; Picturehouse withdraw the redundancies[10]
+**October**           Picturehouse management announces redundancies as the cost of negotiated increased wages at the Ritzy; a day later, Curzon management promises to pay LW; Picturehouse withdraw the redundancies[10]
 
-December       BECTU applies for recognition at Clapham Picturehouse
+**December**       BECTU applies for recognition at Clapham Picturehouse
 
 2015
 
-February         Central Arbitration Committee decides that the Staff Forum is already a recognised trade union at Clapham Picturehouse and refuses BECTU’s recognition application
+**February**         Central Arbitration Committee decides that the Staff Forum is already a recognised trade union at Clapham Picturehouse and refuses BECTU’s recognition application
 
 In the case of Curzon, a group of workers new to trade unionism had to learn the mechanics of collective bargaining and the first hurdle was gaining recognition. Instead of blindly pursuing the statutory process, they focussed on making their demands known to the wider public and petitioning the Curzon patrons in order to pressure management into voluntary recognition. After 6 months of campaigning, BECTU submitted a claim for statutory recognition. As BECTU National Official, Sofie Mason told me in an interview:
 
-‘Holding the company to  account through the legally enforceable and detailed procedures required by the CAC was part of the jigsaw of pressures brought to bear on Curzon to do the right thing. The online petition signed by 7,000+, the celebrity names expressing opinions loudly in public, the comedy stunts by Mark Thomas, the chance that staff might follow the Ritzy example and go on strike and the one producer who pulled his film, were all critical.’
+> ‘Holding the company to  account through the legally enforceable and detailed procedures required by the CAC was part of the jigsaw of pressures brought to bear on Curzon to do the right thing. The online petition signed by 7,000+, the celebrity names expressing opinions loudly in public, the comedy stunts by Mark Thomas, the chance that staff might follow the Ritzy example and go on strike and the one producer who pulled his film, were all critical.’
 
 Crucial to this pressure was the workers’ capture of the Curzon brand through a campaign for restoring concessionary ticket prices for the disabled, senior citizens, students and the unemployed. The workers were therefore able to argue the Curzon patrons’ case, the business case and their own interchangeably.
 
