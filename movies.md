@@ -4,7 +4,7 @@ permalink: /movies/
 ---
 
 ![blue](images/screenshot-from-mvi_0214-mp4-9.png)  
-![red](images/screenshot-from-mvi_0219-mp4-1.png)
+![red](images/screenshot-from-mvi_0219-mp4-1.png)  
 
 
 **_Movies_**  
