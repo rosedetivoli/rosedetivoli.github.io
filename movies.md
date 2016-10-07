@@ -3,8 +3,8 @@ layout: page
 permalink: /movies/
 ---
 
-![blue]({{ site.baseurl }}images/screenshot-from-mvi_0214-mp4-9.png)  
-![red]({{ site.baseurl }}images/screenshot-from-mvi_0219-mp4-1.png)  
+![blue](/images/screenshot-from-mvi_0214-mp4-9.png)  
+![red](/images/screenshot-from-mvi_0219-mp4-1.png)  
 
 
 **_Movies_**  
