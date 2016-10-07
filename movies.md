@@ -3,8 +3,7 @@ layout: page
 permalink: /movies/
 ---
 
-images/screenshot-from-mvi_0214-mp4-9.png
-images/screenshot-from-mvi_0219-mp4-1.png
+![blue](images/screenshot-from-mvi_0214-mp4-9.png) ![red](images/screenshot-from-mvi_0219-mp4-1.png)
 
 _Movies_  
 For a full list, see [this page](). View and read about the following, by browsing the links below:
