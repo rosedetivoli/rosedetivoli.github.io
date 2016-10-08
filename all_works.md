@@ -1,6 +1,6 @@
 ---
 layout: page
-title: All works
+title: All movies and artworks
 permalink: /all_works/
 ---
 
