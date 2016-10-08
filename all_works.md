@@ -1,3 +1,9 @@
+---
+layout: page
+title: All works
+permalink: /all_works/
+---
+
 The links below will take you to the project website, or movie directly.
 
 The Flower Beneath the Foot (in production) ♦  
