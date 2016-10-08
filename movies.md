@@ -6,7 +6,7 @@ permalink: /movies/
 
 ![blue](/images/blue.jpg) ![red](/images/red.jpg)  
 
-For a full list, see [this page](/all_works/). View and read about the following, by browsing the links below:
+For a full list, see [this page](https://razbigor.github.io/all_works/). View and read about the following, by browsing the links below:
 
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
 [April Showers]() ♦ [Ripples]() ♦ [Whose Fitzrovia?]() (2010-2011)  
