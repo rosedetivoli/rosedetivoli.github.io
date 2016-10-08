@@ -4,15 +4,7 @@ title: April Showers
 permalink: /april_showers/
 ---
 
-var embed = require("embed-video")
- 
-var vimeoUrl = "http://vimeo.com/119650822"
- 
-console.log(embed(http://vimeo.com/119650822))
- 
-var vimeoId = "119650822"
- 
-console.log(embed.vimeo(119650822))
+<embed-video iframe-id="vimeo1" api="1" player_id="vimeo1" ng-href="//vimeo.com/119650822"><a href="//vimeo.com/119650822">Watch</a></embed-video>
 
 
 Digital video, 2011, 43 mins
