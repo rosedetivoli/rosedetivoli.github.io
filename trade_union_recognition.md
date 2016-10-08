@@ -1,6 +1,6 @@
 ---
 layout: page
-title: How 
+title: How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?
 permalink: /trade_union_recognition/
 ---
 
