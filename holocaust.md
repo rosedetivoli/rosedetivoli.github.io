@@ -1,4 +1,3 @@
-
 ---
 layout: page
 title: Holocaust: A Music Memorial Film from Auschwitz
