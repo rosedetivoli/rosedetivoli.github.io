@@ -14,6 +14,8 @@ A movie exploring the everyday life of a London student guerilla group who call 
 
 ***
 
+
+
 <iframe src="https://player.vimeo.com/video/120281145" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>  
 
 **Ripples** Digital video, 2011, 45 mins
@@ -22,6 +24,8 @@ A movie entirely shot within 1 square mile of the BT telecommunication tower, wh
 
 ***
 
+
+
 <iframe src="https://player.vimeo.com/video/119957429" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>   
   
 **Whose Fitzrovia? - interview with Anna Minton?** Digital video, 2011, 8.13 min  
@@ -29,6 +33,8 @@ A movie entirely shot within 1 square mile of the BT telecommunication tower, wh
 Interview on Business Improvement Districts with Anna Minton, author of “Ground Control: Fear and Happiness in the Twenty-First Century City”.
 
 ***
+
+
 
 <iframe src="https://player.vimeo.com/video/119960048" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>  
 
