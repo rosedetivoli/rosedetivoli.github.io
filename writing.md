@@ -14,7 +14,7 @@ permalink: /writing/
 On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net/2008/06/the-body-electric/)  
 [On the BBC film Holocaust: A Music Memorial Film from Auschwitz]()  
 [Steven Ball interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video Sundays in Majdanpek  
-An essay on space and time in movies: [Notes on Articulation of Space and Time]()  
+An essay on space and time in movies: [Notes on Articulation of Space and Time](https://razbigor.github.io/images/spaceandtime.pdf)  
 
 **_In Serbo-Croatian_**
 
