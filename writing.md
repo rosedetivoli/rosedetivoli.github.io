@@ -12,7 +12,7 @@ permalink: /writing/
 [On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best)  
 [An essay on the making of lebensraum | living space](https://razbigor.github.io/images/lebensraum-essay2.pdf)  
 On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net/2008/06/the-body-electric/)  
-[On the BBC film Holocaust: A Music Memorial Film from Auschwitz]()  
+[On the BBC film Holocaust: A Music Memorial Film from Auschwitz](https://razbigor.github.io/holocaust/)  
 [Steven Ball interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video Sundays in Majdanpek  
 An essay on space and time in movies: [Notes on Articulation of Space and Time](https://razbigor.github.io/images/spaceandtime.pdf)  
 
