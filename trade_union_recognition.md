@@ -40,7 +40,7 @@ Trade union recognition in a workplace ensures that the trade union is a an offi
 
 **February**         Central Arbitration Committee decides that the Staff Forum is already a recognised trade union at Clapham Picturehouse and refuses BECTU’s recognition application
 
-In the case of Curzon, a group of workers new to trade unionism had to learn the mechanics of collective bargaining and the first hurdle was gaining recognition. Instead of blindly pursuing the statutory process, they focussed on making their demands known to the wider public and petitioning the Curzon patrons in order to pressure management into voluntary recognition. After 6 months of campaigning, BECTU submitted a claim for statutory recognition. As BECTU National Official, Sofie Mason told me in an interview:
+In the case of Curzon, a group of workers new to trade unionism had to learn the mechanics of collective bargaining and the first hurdle was gaining recognition. Instead of blindly pursuing the statutory process, they focussed on making their demands known to the wider public and petitioning the Curzon patrons in order to pressure management into voluntary recognition. After 6 months of campaigning, BECTU submitted a claim for statutory recognition. As BECTU National Official, Sofie Mason told me in an interview:  
 
 >‘Holding the company to  account through the legally enforceable and detailed procedures required by the CAC was part of the jigsaw of pressures brought to bear on Curzon to do the right thing. The online petition signed by 7,000+, the celebrity names expressing opinions loudly in public, the comedy stunts by Mark Thomas, the chance that staff might follow the Ritzy example and go on strike and the one producer who pulled his film, were all critical.'  
 
