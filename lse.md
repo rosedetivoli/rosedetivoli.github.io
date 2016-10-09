@@ -4,7 +4,7 @@ title: Discussion at CITIES programme LSE
 permalink: /lse/
 ---
 
-_On invitation by Ayona Datta, Ger Duijzings and Rastko Novaković presented 25 minutes of the work-in-progress Lebensraum. In continuation is a transcript from the discussion which followed the screening._
+_On invitation by Ayona Datta, Ger Duijzings and Rastko Novaković presented 25 minutes of the work-in-progress Lebensraum in the spring of 2009. In continuation is a transcript from the discussion which followed the screening._
 
 Ger Duijzings: It’s in all respects an experimental process, for both of us; in terms of the research and also in terms of the presentation, so I’m particularly curious to hear what you make of it and what sort of understanding you have of what you are hearing and seeing.
 
