@@ -25,6 +25,6 @@ Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. [Bunt u Veli
 
 **_Texts that should be available elsewhere_**
 
-[James Kelman’s Booker Prize acceptance speech]() in 1994  
-Danilo Kiš [On Nationalism](), 1973  
-[Andrei Platonov and the prospect of some potatoes]()  
+[James Kelman’s Booker Prize acceptance speech](https://razbigor.github.io/kelman/) in 1994  
+Danilo Kiš [On Nationalism](https://razbigor.github.io/kis), 1973  
+[Andrei Platonov and the prospect of some potatoes](https://razbigor.github.io/platonov)  
