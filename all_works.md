@@ -16,7 +16,7 @@ Excerpts of a Conversation (2011, with persons unknown) ♦
 [Geopolitical Everyday blog](https://geopoliticaleveryday.wordpress.com/) (2010-2011) ♦  
 Words From a Police Kettle (2010, with persons unknown) ♦  
 [Waldron Panorama](https://razbigor.github.io/waldron/) (with Amanda Egbe, Oct 2010 – Feb 2011) ♦  
-[Whose Fitzrovia?](https://razbigor.github.io/april_showers/) Anna Minton (2010) ♦  
+[Whose Fitzrovia? interview with Anna Minton](https://razbigor.github.io/april_showers/) (2010) ♦  
 [Whose Fitzrovia?](https://razbigor.github.io/april_showers/) (2010) ♦  
 [kentish town lebensraum]() (2010) ♦  
 8. mart (2010, with Women in Black) ♦  
@@ -30,8 +30,8 @@ Imprints (2009) ♦
 SPACEPLACE (with Amanda Egbe, 2008) ♦  
 [To NATO with love]() (2008) ♦  
 Operations (with Free Cinema Seven, 2007) ♦  
-[Between Clock and Bed]() (2007) ♦  
-Sundays in Majdanpek (2007) ♦  
+[Between Clock and Bed](http://www.studycollection.org.uk/works/between-clock-and-bed) (2007) ♦  
+[Sundays in Majdanpek](http://www.studycollection.co.uk/sundaysinmajdanpek/) (2007) ♦  
 Postcard (2006) ♦  
 Tracing Spaces (with Open Script, 2005) ♦  
 [Tomorrow and the Day Before]() (2004) ♦  
