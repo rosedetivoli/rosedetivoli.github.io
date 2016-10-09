@@ -14,8 +14,8 @@ The Flower Beneath the Foot (in production) ♦
 [Ripples](https://razbigor.github.io/april_showers/) (2011) ♦  
 Excerpts of a Conversation (2011, with persons unknown) ♦  
 [Geopolitical Everyday blog](https://geopoliticaleveryday.wordpress.com/) (2010-2011) ♦  
-[Words From a Police Kettle](http://london.indymedia.org/videos/6159) (2010, with persons unknown) ♦  
-[Waldron Panorama](http://bashta.co.uk/index.php?option=com_content&view=article&id=9:waldron-panorama&catid=2:latest&Itemid=3) (with Amanda Egbe, Oct 2010 – Feb 2011) ♦  
+Words From a Police Kettle (2010, with persons unknown) ♦  
+[Waldron Panorama](https://razbigor.github.io/waldron/) (with Amanda Egbe, Oct 2010 – Feb 2011) ♦  
 [Whose Fitzrovia?](https://razbigor.github.io/april_showers/) Anna Minton (2010) ♦  
 [Whose Fitzrovia?](https://razbigor.github.io/april_showers/) (2010) ♦  
 [kentish town lebensraum]() (2010) ♦  
