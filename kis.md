@@ -4,7 +4,7 @@ title: On Nationalism
 permalink: /kis/
 ---
 
-![kis_then](images/kis.jpg)
+![kis_then](/images/kis.jpg)
 
 [translated by Ivana Đorđević]
 
