@@ -9,7 +9,7 @@ The links below will take you to the project website, or movie directly.
 The Flower Beneath the Foot (in production) ♦  
 [Ruins of Tomorrow](https://razbigor.github.io/rot/) (with Caterina Sartori, in production) ♦  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014) ♦  
-[Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) – music video for The Sea Kings (with Amanda Egbe, 2013) ♦  
+[Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 2013) ♦  
 [April Showers](https://razbigor.github.io/april_showers/) (2011) ♦  
 [Ripples](https://razbigor.github.io/april_showers/) (2011) ♦  
 Excerpts of a Conversation (2011, with persons unknown) ♦  
