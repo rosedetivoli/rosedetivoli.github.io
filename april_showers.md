@@ -8,7 +8,7 @@ _April Showers, Ripples and Whose Fitzrovia? were made possible through a Leverh
 
 **April Showers**
 
-<embed-video iframe-id="vimeo1" api="1" player_id="vimeo1" ng-href="//vimeo.com/119650822"><a href="//vimeo.com/119650822">Watch</a></embed-video>
+<iframe src="https://player.vimeo.com/video/119650822" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 
 Digital video, 2011, 43 mins
 
@@ -24,13 +24,13 @@ A movie entirely shot within 1 square mile of the BT telecommunication tower, wh
 
 **Whose Fitzrovia?**
 
-<iframe src="https://player.vimeo.com/video/119957429?title=0&byline=0&portrait=0" width="640" height="427" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p>Whose Fitzrovia - Anna Minton from <a href="https://vimeo.com/mosc">_</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
+<iframe src="https://player.vimeo.com/video/119957429" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 
 Digital video, 2011, 8.13 min
 
 Interview on Business Improvement Districts with Anna Minton, author of “Ground Control: Fear and Happiness in the Twenty-First Century City”.
 
-<iframe src="https://player.vimeo.com/video/119960048?title=0&byline=0&portrait=0" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> <p>Whose Fitzrovia? from <a href="https://vimeo.com/mosc">_</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
+<iframe src="https://player.vimeo.com/video/119960048" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
 
 Digital video, 2011, 4.19 min
 
