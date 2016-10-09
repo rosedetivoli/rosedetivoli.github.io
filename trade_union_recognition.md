@@ -42,7 +42,7 @@ Trade union recognition in a workplace ensures that the trade union is a an offi
 
 In the case of Curzon, a group of workers new to trade unionism had to learn the mechanics of collective bargaining and the first hurdle was gaining recognition. Instead of blindly pursuing the statutory process, they focussed on making their demands known to the wider public and petitioning the Curzon patrons in order to pressure management into voluntary recognition. After 6 months of campaigning, BECTU submitted a claim for statutory recognition. As BECTU National Official, Sofie Mason told me in an interview:  
 
-> ‘Holding the company to  account through the legally enforceable and detailed procedures required by the CAC was part of the jigsaw of pressures brought to bear on Curzon to do the right thing. The online petition signed by 7,000+, the celebrity names expressing opinions loudly in public, the comedy stunts by Mark Thomas, the chance that staff might follow the Ritzy example and go on strike and the one producer who pulled his film, were all critical.'
+>‘Holding the company to  account through the legally enforceable and detailed procedures required by the CAC was part of the jigsaw of pressures brought to bear on Curzon to do the right thing. The online petition signed by 7,000+, the celebrity names expressing opinions loudly in public, the comedy stunts by Mark Thomas, the chance that staff might follow the Ritzy example and go on strike and the one producer who pulled his film, were all critical.'
   
 Crucial to this pressure was the workers’ capture of the Curzon brand through a campaign for restoring concessionary ticket prices for the disabled, senior citizens, students and the unemployed. The workers were therefore able to argue the Curzon patrons’ case, the business case and their own interchangeably.
 
@@ -63,11 +63,11 @@ Finally, responding to claims from BECTU which drew on the wider campaign and co
 The CAC considered both sets of arguments and looked at three areas in determining the Forum’s validity and BECTU’s application: has there been a change of circumstance since 2003, is there a collective agreement in force and does the Demir judgement affect how a domestic body would determine the Forum’s validity? The CAC conceded that the Forum ‘is highly atypical as an organisation, let alone an organisation of workers.’[17]However, once it became an organisation with members and elected officials in March 2004, it de facto became a trade union which had
 
 >‘the minimum sufficient structure and agreed processes to represent, to some extent, the interest of its membership with non-managerial cinema staff and is seeking to do this.’[18]
-
+  
 The CAC determined it was different from a consultative body (since it meets the minimum requirements in section 1 of the Act) and is currently operating as
 
 >‘an organisation (whether temporary or permanent) (a) which consists wholly or mainly of workers of one of more descriptions and whose principal purposes includes the regulation of relations between workers of that description… and employers.’[19]
-
+  
 It was therefore to be treated as a trade union, even though not an independent one. The fact that the Forum administrator is a senior manager compromised its standing, but not fatally. The CAC accepted that the evidence provided showed that collective bargaining as defined under s178 of TUL(C)RA 1992 had taken place. The 2014 pay talks and negotiations between Forum and Employer, related to or were connected to ‘the terms and conditions of employment, or the physical conditions in which any workers are required to work’.
 
 Turning to the Demir judgement and BECTU’s claim that in order to give effect to article 11 (freedom of assembly and association) the reference in paragraph 35[20] should interpret ‘a union’ as ‘an independent union’, the CAC was not persuaded. Furthermore, it stated that it must comply with the Boots[21] judgement which came after Demir and determined that there is no incompatibility between Article 11 of ECHR and schedule 35, since the collective agreement is terminable by the process in Part VI (Derecognition where union not independent) of TULR(C)A 1992. [22]
