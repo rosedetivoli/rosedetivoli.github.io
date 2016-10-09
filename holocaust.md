@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Holocaust, A Music Memorial Film from Auschwitz
+title: Holocaust - A Music Memorial Film from Auschwitz
 permalink: /holocaust/
 ---
 
