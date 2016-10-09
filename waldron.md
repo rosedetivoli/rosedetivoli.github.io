@@ -4,7 +4,7 @@ title: Waldron Panorama
 permalink: /waldron/
 ---
 
-![waldron](/images/waldron.jpg)
+![waldron](/images/waldron.JPG)
 
 Amanda Egbe and Rastko Novaković with local pupils  
 Commission by Lewisham Education Arts Network (LEAN) and Deptford X 2010
