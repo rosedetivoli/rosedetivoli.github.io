@@ -27,8 +27,8 @@ What is the role and importance of mass action and mass organisation? How can we
 
 Everybody is welcome and your presence and any contributions will be much appreciated."
 
-[project space 176](http://www.projectspace176.com)  
-176 Prince of Wales Road,
-Kentish Town,
-London,
-NW5 3PT
+project space 176  
+176 Prince of Wales Road,  
+Kentish Town,  
+London,  
+NW5 3PT  
