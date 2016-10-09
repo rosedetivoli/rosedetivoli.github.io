@@ -10,7 +10,7 @@ For a full list, see [this page](https://razbigor.github.io/all_works/). View an
 
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
 [April Showers](https://razbigor.github.io/april_showers/) ♦ [Ripples](https://razbigor.github.io/april_showers/) ♦ [Whose Fitzrovia?](https://razbigor.github.io/april_showers/) (2010-2011)  
-[Waldron Panorama]() (with Amanda  Egbe, Oct 2010 – Feb 2011)  
+[Waldron Panorama](https://razbigor.github.io/waldron/) (with Amanda  Egbe, Oct 2010 – Feb 2011)  
 [Vukovar 2009]() (with Women in  Black)  
 [Deptford | Tributes](http://deptfordtributes.co.uk) (with Amanda  Egbe, 2009)  
 [lebensraum | living space]() (2009) ♦ [kentish town lebensraum]() (2010)  
