@@ -6,8 +6,10 @@ permalink: /ktlebensraum/
 
 <iframe src="https://player.vimeo.com/video/119961768" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> 
 
-A video from the performance as it happened on Sunday, 18th January 2009
-[Images](http://www.flickr.com/photos/lebensraumlivingspace) from the day
+A video from the performance as it happened on Sunday, 18th January 2009  
+
+Images from the day:
+<a data-flickr-embed="true"  href="https://www.flickr.com/photos/lebensraumlivingspace/albums/72157612733355499" title="Lebensraum / living space"><img src="https://c5.staticflickr.com/4/3374/3212621220_a3487a7353_z.jpg" width="640" height="426" alt="Lebensraum / living space"></a><script async src="//embedr.flickr.com/assets/client-code.js" charset="utf-8"></script>
 
 "OPEN CALL
 
