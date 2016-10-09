@@ -12,6 +12,7 @@ _April Showers, Ripples and Whose Fitzrovia? were made possible through a Leverh
 
 A movie exploring the everyday life of a London student guerilla group who call themselves **Immediate Global Justice**. Revolutionary rhetoric is mixed with boredom and house chores. Interviews with scholars question the motivation and the exact nature of the group’s activities. 
 
+
 ***
 
 
@@ -22,6 +23,7 @@ A movie exploring the everyday life of a London student guerilla group who call 
 
 A movie entirely shot within 1 square mile of the BT telecommunication tower, which explores the tower and the surrounding area from different perspectives: the quotidian comings and goings, the local architecture, the changing of the seasons, urban redevelopment, a tarot reading, an account of local history, macroeconomic and metropolitan processes, critical geopolitics, a mantra chant and elements of science fiction. It counterposes London’s BT tower with Belgrade’s Avala tower to explore our fascination with these structures, their military and civilian use as well as the imaginary space they create, be it national, psychological or as a local landmark.
 
+
 ***
 
 
@@ -31,6 +33,7 @@ A movie entirely shot within 1 square mile of the BT telecommunication tower, wh
 **Whose Fitzrovia? - interview with Anna Minton?** Digital video, 2011, 8.13 min  
 
 Interview on Business Improvement Districts with Anna Minton, author of “Ground Control: Fear and Happiness in the Twenty-First Century City”.
+
 
 ***
 
