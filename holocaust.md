@@ -4,7 +4,7 @@ title: Holocaust: A Music Memorial Film from Auschwitz
 permalink: /holocaust/
 ---
 
-![holocaust](/images/holocaust.jpg)  
+![holocaust](/images/holocaust.jpg)
 
 Aired on BBC2, Saturday 22nd of January directed by James Kent  
 
