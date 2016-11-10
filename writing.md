@@ -8,13 +8,13 @@ permalink: /writing/
 
 **_In English_**
 
-[How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://razbigor.github.io/trade_union_recognition/)  
+[How have the law on trade union recognition and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/)  
 [On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best)  
-[An essay on the making of lebensraum | living space](https://razbigor.github.io/images/lebensraum-essay2.pdf)  
+[An essay on the making of lebensraum | living space](https://rosedetivoli.github.io/images/lebensraum-essay2.pdf)  
 On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net/2008/06/the-body-electric/)  
-[On the BBC film Holocaust: A Music Memorial Film from Auschwitz](https://razbigor.github.io/holocaust/)  
+[On the BBC film Holocaust: A Music Memorial Film from Auschwitz](https://rosedetivoli.github.io/holocaust/)  
 [Steven Ball interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video Sundays in Majdanpek  
-An essay on space and time in movies: [Notes on Articulation of Space and Time](https://razbigor.github.io/images/spaceandtime.pdf)  
+An essay on space and time in movies: [Notes on Articulation of Space and Time](https://rosedetivoli.github.io/images/spaceandtime.pdf)  
 
 **_In Serbo-Croatian_**
 
@@ -25,6 +25,6 @@ Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. [Bunt u Veli
 
 **_Texts that should be available elsewhere_**
 
-[James Kelman’s Booker Prize acceptance speech](https://razbigor.github.io/kelman/) in 1994  
-Danilo Kiš [On Nationalism](https://razbigor.github.io/kis), 1973  
-[Andrei Platonov and the prospect of some potatoes](https://razbigor.github.io/platonov)  
+[James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
+Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
+[Andrei Platonov and the prospect of some potatoes](https://rosedetivoli.github.io/platonov)  
