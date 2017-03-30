@@ -19,7 +19,7 @@ Words From a Police Kettle (2010, with persons unknown) ♦
 [Whose Fitzrovia? interview with Anna Minton](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
 [Whose Fitzrovia?](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
 [kentish town lebensraum](https://rosedetivoli.github.io/ktlebensraum/) (2010) ♦  
-8. mart (2010, with Women in Black) ♦  
+Osmi mart (2010, with Women in Black) ♦  
 [Vukovar 2009.](https://rosedetivoli.github.io/vukovar/) (2010, for Women in Black) ♦  
 Antifa 2009. (2010, for Women in Black) ♦  
 [Deptford | Tributes](http://www.deptfordtributes.co.uk/) (with Amanda Egbe, 2009) ♦  
