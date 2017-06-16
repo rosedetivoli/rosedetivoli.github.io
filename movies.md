@@ -8,7 +8,7 @@ permalink: /movies/
 
 For a full list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
 
-[The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in pre-production)    
+[The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in pre-production)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
 [April Showers](https://rosedetivoli.github.io/april_showers/) ♦ [Ripples](https://rosedetivoli.github.io/april_showers/) ♦ [Whose Fitzrovia?](https://rosedetivoli.github.io/april_showers/) (2010-2011)  
 [Waldron Panorama](https://rosedetivoli.github.io/waldron/) (with Amanda  Egbe, Oct 2010 – Feb 2011)  
