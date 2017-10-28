@@ -15,7 +15,7 @@ On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net
 [On the BBC film Holocaust: A Music Memorial Film from Auschwitz](https://rosedetivoli.github.io/holocaust/)  
 [Steven Ball interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video Sundays in Majdanpek  
 An essay on space and time in movies: [Notes on Articulation of Space and Time](https://rosedetivoli.github.io/images/spaceandtime.pdf)  
-[What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter.md/)  
+[What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/)  
 
 **_In Serbo-Croatian_**
 
