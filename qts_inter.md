@@ -1,6 +1,6 @@
-**What can queer tango learn from intersectionality?**
-_(a workshop delivered at Queer Tango Salon, London 2017)_
-Carolyn and Rastko
+**What can queer tango learn from intersectionality?**  
+_(a workshop delivered at Queer Tango Salon, London 2017)_  
+Carolyn and Rastko  
 
 _Original invite:_
 
