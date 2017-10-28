@@ -24,16 +24,7 @@ experiences, and ask some questions, without necessarily aiming to find answers 
 was a very small group, but with the hope that we would take these questions back to the
 places where we dance. These notes sum up and build on the discussions we had.
 
-Intersectionality defined: A systemic and structural matrix of oppression and privilege
-affects us all according to Class - Gender - Race - Wealth - Dis/ability - Care commitments
-- Age - Body image - Language - Nationality and passport - Job/Housing security - Wage
-slavery... Any examination of oppression shows that various kinds of oppression intersect.
-Oppression in the capitalist world plays out as about economic power/access to
-money/time as well as multiple other effects on daily life. In a patriarchal/racist world it’s
-not just about the money, also about things like risk of physical attack in the street outside
-the venue. Racism contributes to and exacerbates the inequality of access to tango
-culture. Patriarchy poisons people’s minds and patriarchal binaries and leader-follower
-expectations also infect our spaces insidiously, even in queer tango.
+Intersectionality defined: A systemic and structural matrix of oppression and privilege affects us all according to Class - Gender - Race - Wealth - Dis/ability - Care commitments - Age - Body image - Language - Nationality and passport - Job/Housing security - Wage slavery... Any examination of oppression shows that various kinds of oppression intersect. Oppression in the capitalist world plays out as about economic power/access to money/time as well as multiple other effects on daily life. In a patriarchal/racist world it’s not just about the money, also about things like risk of physical attack in the street outside the venue. Racism contributes to and exacerbates the inequality of access to tango culture. Patriarchy poisons people’s minds and patriarchal binaries and leader-follower expectations also infect our spaces insidiously, even in queer tango.
 
 Resistance to oppression by the tango community – i.e. those of us who organise promote
 and attend events – can take many forms.
