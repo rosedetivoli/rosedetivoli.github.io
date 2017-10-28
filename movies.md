@@ -8,6 +8,7 @@ permalink: /movies/
 
 For a full list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
 
+[Where Were You in 1992?] (http://1992.maydayrooms.org) (with Amanda Egbe)
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in development)  
 [Cine-membrane](http://www.cinemembrane.org.uk/) project (with Amanda Egbe)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
