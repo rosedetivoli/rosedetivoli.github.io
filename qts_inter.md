@@ -18,6 +18,7 @@ dancing shoes, but also, bring an item (an accessory or garment) which
 you can exchange with others during the workshop._
 
 ![photo by Marie Eisenhardt](images/CJUicIxWwAAQ8ZM.jpg)
+(photo by Marie Eisenhardt)
 
 We presented a workshop on the subject of intersectionality. We only had limited time and
 a small group of people (which included non-dancers as well as some folk with many years
