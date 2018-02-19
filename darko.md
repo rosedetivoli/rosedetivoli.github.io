@@ -1,5 +1,15 @@
-In Memoriam
-Darko Novaković  (1949 – 2018)
+---
+layout: page
+title: IN MEMORIAM Darko Novaković
+permalink: /darko/
+---
+
+![](/images/darko.jpg)
+
+
+In Memoriam  
+Darko Novaković  
+(1949 – 2018)  
 
 Odlaskom Darka Novakovića nebeska redakcija je konačno odnela prevagu nad zemaljskom. Dobili su ono što im je nedostajalo sve vreme, a to je jednostavnost forme i izraza. Nešto na čemu je Darko celog svog života insistirao. Zbog toga je u svojoj profesiji postavio standarde od kojih danas svi polaze. Zahvaljujući Darku Novakoviću znamo kako bi trebalo da izgleda jedan nedeljnik, dnevna novina, stručni časopis ili knjiga. Svako će vam reći da je čuo za „Evropljanin“, Sportski žurnal“, „Politiku The International Weekly“, „Korene“, „Pismo“,  „Glas Srba“, „Le Monde Diplomatique“, „Politiku Ekspres“ ili „Mostove“, ali malo ko će znati da ih je grafički postavio i unapredio Darko Novaković.  
 
