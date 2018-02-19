@@ -4,7 +4,7 @@ title: IN MEMORIAM Darko Novaković
 permalink: /darko/
 ---
 
-![](/images/darko.jpg)
+![](/images/darko.jpeg)
 
 
 In Memoriam  
@@ -21,6 +21,6 @@ Ono što je Darko Novaković učinio za ćirilicu i očuvanje ćiriličnih slova
 
 Umeo je često da kaže „ima dana više nego kobasica“. Nažalost, dana više nema, a ni kobasica sušenih na vetru negde u Šimanovcima, kojima nas je redovno snabdevao. Mi koji ostajemo, sve i da hoćemo ne možemo se nikada rastati od našeg Darka. Ako slučajno nekada i zaboravimo na njega, on sigurno neće na nas. Znamo da sa Vojinom Partonićem već sedi u „Grmeču“ koji je tamo zbog potreba redakcije odavno već otvoren i čeka sve nas da im se pridružimo.  
 
-Biće to ponovo prilka za jedinstveno druženje koje je odavno obeležilo sve naše živote.  
+Biće to ponovo prilika za jedinstveno druženje koje je odavno obeležilo sve naše živote.  
 
 Srdjan Škoro
