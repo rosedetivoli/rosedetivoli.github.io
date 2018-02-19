@@ -28,3 +28,6 @@ Biće to ponovo prilika za jedinstveno druženje koje je odavno obeležilo sve n
   
 Srdjan Škoro  
 Politika, 19. II 2018., Rubrika "Društvo"
+
+
+![](/images/d.jpeg)
