@@ -27,4 +27,4 @@ Biće to ponovo prilika za jedinstveno druženje koje je odavno obeležilo sve n
   
   
 Srdjan Škoro  
-19. II 2018.
+Politika, 19. II 2018., Rubrika "Društvo"
