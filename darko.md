@@ -26,5 +26,5 @@ Umeo je često da kaže „ima dana više nego kobasica“. Nažalost, dana viš
 Biće to ponovo prilika za jedinstveno druženje koje je odavno obeležilo sve naše živote.  
   
   
-Srdjan Škoro
+Srdjan Škoro  
 19. II 2018.
