@@ -30,4 +30,4 @@ Srdjan Škoro
 Politika, 19. II 2018., Rubrika "Društvo"
 
 
-![](/images/d.jpeg)
+![](/images/d.png)
