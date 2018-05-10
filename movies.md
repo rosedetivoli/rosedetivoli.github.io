@@ -4,7 +4,7 @@ title: Movies etc.
 permalink: /movies/
 ---
 
-![](/images/IMG_0237.jpg)
+![](/images/Waiting.jpeg)
 
 For a full list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
 
