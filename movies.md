@@ -10,7 +10,6 @@ For a full list, see [this page](https://rosedetivoli.github.io/all_works/). Vie
 
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in development)  
-[Cine-membrane](http://www.cinemembrane.org.uk/) project (with Amanda Egbe)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
 [April Showers](https://rosedetivoli.github.io/april_showers/) ♦ [Ripples](https://rosedetivoli.github.io/april_showers/) ♦ [Whose Fitzrovia?](https://rosedetivoli.github.io/april_showers/) (2010-2011)  
 [Waldron Panorama](https://rosedetivoli.github.io/waldron/) (with Amanda  Egbe, Oct 2010 – Feb 2011)  
