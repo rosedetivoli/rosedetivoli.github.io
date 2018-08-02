@@ -4,7 +4,7 @@ layout: default
 
 ![home](/images/rastko.jpg)
 
- footer-links:
+# footer-links:
   dribbble:
 # email: tetrys@posteo.de
   facebook:
