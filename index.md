@@ -2,4 +2,5 @@
 layout: default
 ---
 
-![home](/images/rastko.jpg)
+e: tetrys [at] posteo.de
+t: @singalongest / @rosedetivoli
