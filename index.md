@@ -4,7 +4,7 @@ layout: default
 
 
    email: tetrys [at] posteo.de  
-   twitter: @singalongest
+   twitter: [@singalongest](https://twitter.com/singalongest)
   
    
     
