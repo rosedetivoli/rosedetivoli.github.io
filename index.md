@@ -6,4 +6,4 @@ layout: default
 
  footer-links:
 # email: tetrys@posteo.de
-# twitter: rosedetivoli
+# twitter: @rosedetivoli
