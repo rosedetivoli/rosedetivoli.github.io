@@ -6,7 +6,7 @@ permalink: /movies/
 
 ![](/images/1992_spread_for_bts_small.png)
 
-For a full list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
+For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
 
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in development)  
