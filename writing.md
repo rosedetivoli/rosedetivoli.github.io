@@ -30,5 +30,5 @@ Osvrt na prvu nedelju u Britaniji posle EU referenduma - [Šta se smeškaš lutk
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
 [Andrei Platonov and the prospect of some potatoes](https://rosedetivoli.github.io/platonov)  
-[In Memoriam - Darko Novaković](http://www.rastko.co.uk/darko/)
-Aleksandar Vučo [Ćirilo i Metodije](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_cirilo.pdf) [Nemenikuće](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_nemenikuce.pdf)
+[In Memoriam - Darko Novaković](http://www.rastko.co.uk/darko/)  
+Aleksandar Vučo [Ćirilo i Metodije](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_cirilo.pdf) i [Nemenikuće](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_nemenikuce.pdf)
