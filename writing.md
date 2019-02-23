@@ -8,10 +8,10 @@ permalink: /writing/
 
 **_In English_**
 
-[What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/), 2017
-[How has the law and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015  
-[On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best) 2014
-[An essay on the making of lebensraum | living space](https://rosedetivoli.github.io/images/lebensraum-essay2.pdf), 2009
+[What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/), 2017  
+[How has the law and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015    
+[On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best) 2014  
+[An essay on the making of lebensraum | living space](https://rosedetivoli.github.io/images/lebensraum-essay2.pdf), 2009  
 On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net/2008/06/the-body-electric/), 2008  
 [On the BBC film Holocaust: A Music Memorial Film from Auschwitz](https://rosedetivoli.github.io/holocaust/)  
 [Steven Ball interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video Sundays in Majdanpek, 2008
