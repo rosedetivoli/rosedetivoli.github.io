@@ -20,11 +20,11 @@ An essay on space and time in movies: [Notes on Articulation of Space and Time](
 
 **_In Serbo-Croatian_**
 
+Osvrt na prvu nedelju u Britaniji posle EU referenduma - [_Šta se smeškaš lutko, pakuj se!_](http://pescanik.net/sta-se-smeskas-lutko-pakuj-se/)  
 Intervju sa Višeslavom Radenkovićem za portal Before After o [video aktivizmu](http://beforeafter.rs/life/video-aktivizam/)  
 Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/) u skraćenoj verziji prenet na portalu Peščanik, objavljen u časopisu ПРИЗОР, broj 13. 2014.  
 O urbanističkom projektu “Beograd na vodi”, sa portala Peščanik: [_Krv nije voda_](http://pescanik.net/2014/03/krv-nije-voda/), [_Beograd na steroidima_](http://pescanik.net/2014/05/beograd-na-steroidima/)  
 Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [Bunt u Velikoj Britaniji – ovo je samo početak](http://www.pecat.co.rs/2011/01/bunt-u-v-britaniji-ovo-je-samo-pocetak/)  
-Osvrt na prvu nedelju u Britaniji posle EU referenduma - [_Šta se smeškaš lutko, pakuj se!_](http://pescanik.net/sta-se-smeskas-lutko-pakuj-se/)
 
 **_Texts that should be available elsewhere_**
 
