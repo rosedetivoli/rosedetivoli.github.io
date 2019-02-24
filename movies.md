@@ -4,9 +4,10 @@ title: Movies etc.
 permalink: /movies/
 ---
 
-![](/images/spread_eisenstein.png)
+For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following projects, by browsing the links below.
 
-For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
+![](/images/spread_eisenstein.png)
+(still from _Rumours of War_ - a film from the project _Where Were You in 1992?_)
 
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com) (in development)  
