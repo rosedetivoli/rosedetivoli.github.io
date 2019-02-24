@@ -4,7 +4,7 @@ title: Movies etc.
 permalink: /movies/
 ---
 
-![](/images/1992_spread_for_bts_small.png)
+![](/images/spread_eisenstein.png)
 
 For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). View and read about the following, by browsing the links below:
 
