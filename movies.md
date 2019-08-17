@@ -5,8 +5,8 @@ permalink: /movies/
 ---
 
 For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). 
-![](/images/spread_eisenstein.png)
-(stills from _Rumours of War_ (2018) - a film from the project: _Where Were You in 1992?_)
+![](/images/screenshot.png)
+(still from _Pelynas Marija / Wormwood Maria_, work in progress)
   
   
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
