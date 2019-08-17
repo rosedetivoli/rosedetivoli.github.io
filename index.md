@@ -2,7 +2,7 @@ My work is collaborative and I mainly work with the moving image. I currently di
 
 I hold a BA in _Contemporary Media Practice_ from the University of Westminster and an MA in _Research Architecture_ from Goldsmiths College. I hold a Diploma in _Employment Law_ from the Workers' Educational Association. I have lectured on Experimental Film and Video at the University of Westminster and on Urban Practices at University College London. In the past decade I have been active in trade union and housing struggles. 
   
-![](/images/x5.jpg) 
+![](/images/_1220568.JPG) 
 
 **email** tetrys [at] posteo [dot] de  
 **twitter** [@singalongest](https://twitter.com/singalongest) 
