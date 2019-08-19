@@ -6,7 +6,7 @@ permalink: /all_works/
 
 The links below will take you to the project website, or movie directly.
 
-Pelynas Marija / Wormwood Marija (with Beatričė Bukantytė - work in progress) ♦  
+Pelynas Marija / Wormwood Maria (with Beatričė Bukantytė - work in progress) ♦  
 [Svetozar in Spring - part of Where Were You In 1992?](https://vimeo.com/343830526) (2019) ♦  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing, with Amanda Egbe) ♦  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com/) (in development) ♦  
