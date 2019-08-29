@@ -20,9 +20,9 @@ Pelynas Marija / Wormwood Maria (with Beatričė Bukantytė - work in progress) 
 [Whose Fitzrovia? interview with Anna Minton](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
 [Whose Fitzrovia?](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
 [kentish town lebensraum](https://rosedetivoli.github.io/ktlebensraum/) (2010) ♦  
-Osmi mart (2010, with Women in Black) ♦  
+Osmi mart (2010, with [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124)) ♦  
 [Vukovar 2009.](https://rosedetivoli.github.io/vukovar/) (2010, for Women in Black) ♦  
-Antifa 2009. (2010, for Women in Black) ♦  
+Antifa 2009. (2010, for [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124)) ♦  
 [Deptford | Tributes](http://www.deptfordtributes.co.uk/) (with Amanda Egbe, 2009) ♦  
 [A guided tour of Climate Camp](https://www.youtube.com/watch?v=rLQRGaEfJ2A) (2009) ♦  
 [lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (2009) ♦  
