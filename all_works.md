@@ -13,9 +13,9 @@ Pelynas Marija / Wormwood Maria (with Beatričė Bukantytė - work in progress) 
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 2013) ♦  
 [April Showers](https://rosedetivoli.github.io/april_showers/) (2011) ♦  
 [Ripples](https://rosedetivoli.github.io/april_showers/) (2011) ♦  
-Excerpts of a Conversation (2011, with persons unknown) ♦  
+[Excerpts of a Conversation](https://amp.0x2620.org/BPQ/player/00:00:02.876) (2011, with persons unknown) ♦  
 [Geopolitical Everyday blog](https://geopoliticaleveryday.wordpress.com/) (2010-2011) ♦  
-Words From a Police Kettle (2010, with persons unknown) ♦  
+[Words From a Police Kettle](https://amp.0x2620.org/BPO/player) (2010, with persons unknown) ♦  
 [Waldron Panorama](https://rosedetivoli.github.io/waldron/) (with Amanda Egbe, Oct 2010 – Feb 2011) ♦  
 [Whose Fitzrovia? interview with Anna Minton](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
 [Whose Fitzrovia?](https://rosedetivoli.github.io/april_showers/) (2010) ♦  
