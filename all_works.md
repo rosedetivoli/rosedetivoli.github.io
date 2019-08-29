@@ -6,7 +6,8 @@ permalink: /all_works/
 
 The links below will take you to the project website, or movie directly.
 
-Pelynas Marija / Wormwood Maria (with Beatričė Bukantytė - work in progress) ♦  
+Caprice (with Beatričė Bukantytė - work in progress) ♦  
+[Pelynas Marija / Wormwood Maria](https://www.rastko.co.uk//images/screenshot.png)(with Beatričė Bukantytė - work in progress) ♦  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing, with Amanda Egbe) ♦  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com/) (in development) ♦  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014) ♦  
@@ -30,7 +31,7 @@ Signal | Deptford (with Amanda Egbe, 2009) ♦
 Imprints (2009) ♦  
 SPACEPLACE (with Amanda Egbe, 2008) ♦  
 [To NATO with love](https://rosedetivoli.github.io/nato/) (2008) ♦  
-Operations (with Free Cinema Seven, 2007) ♦  
+[Operations](http://eng.o3one.rs/category/archives/page/28/) (with Free Cinema Seven, 2007) ♦  
 [Between Clock and Bed](http://www.studycollection.org.uk/works/between-clock-and-bed) (2007) ♦  
 [Sundays in Majdanpek](http://www.studycollection.co.uk/sundaysinmajdanpek/) (2007) ♦  
 Postcard (2006) ♦  
