@@ -6,7 +6,7 @@ permalink: /movies/
 
 For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). 
 ![](/images/screenshot.png)
-(still from _Pelynas Marija / Wormwood Maria_, work in progress)
+(still from _Pelyno Marija / Wormwood Maria_, work in progress)
   
   
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
