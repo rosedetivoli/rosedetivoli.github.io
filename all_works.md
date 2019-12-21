@@ -7,7 +7,7 @@ permalink: /all_works/
 The links below will take you to the project website, or movie directly.
 
 Caprice (with Beatričė Bukantytė - work in progress) ♦  
-[Pelynas Marija / Wormwood Maria](https://www.rastko.co.uk//images/screenshot.png) (with Beatričė Bukantytė - work in progress) ♦  
+[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/screenshot.png) (with Beatričė Bukantytė - work in progress) ♦  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing, with Amanda Egbe) ♦  
 [The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com/) (in development) ♦  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014) ♦  
