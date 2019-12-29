@@ -4,7 +4,18 @@ title: Rebel tango
 permalink: /rebeltango/
 ---
 
-[!](https://rastko.co.uk/images/rebel_tango.png)
+[REBEL TANGO](/images/rebel_tango.png)
 
-(http://thefieldnx.com/calendar/)
+Queer - Feminist - Anti-Capitalist  
+Learn to dance in a safe environment  
+Free/ Donations  
+
+Fortnightly on Fridays at The Field  
+385 Queens Road London SE14 5HD  
+  
+Class starts at 7.30pm, doors open at 7.15pm.  
+  
+Check the [calendar](http://thefieldnx.com/calendar/) for upcoming dates.
+
+Get in touch at queertango@aktivix.org.
 
