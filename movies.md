@@ -4,12 +4,12 @@ title: Movies etc.
 permalink: /movies/
 ---
 
-For a longer list, see [this page](https://rosedetivoli.github.io/all_works/). 
 ![](/images/screenshot.png)
 (still from _Pelyno Marija / Wormwood Maria_, work in progress)
   
+Below is a selection - for a full list, see [this page](https://rosedetivoli.github.io/all_works/).  
   
-[Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe)  
+[Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing project with Amanda Egbe)  
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (in development)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
 [Ripples](https://rosedetivoli.github.io/april_showers/)  
