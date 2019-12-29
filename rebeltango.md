@@ -4,7 +4,7 @@ title: Rebel tango
 permalink: /rebeltango/
 ---
 
-[REBEL TANGO](/images/rebel_tango.png)
+![REBEL TANGO](/images/rebel_tango.png)
 
 Queer - Feminist - Anti-Capitalist  
 Learn to dance in a safe environment  
