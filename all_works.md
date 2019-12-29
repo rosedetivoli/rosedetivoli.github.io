@@ -8,8 +8,9 @@ The links below will take you to the project website, or movie directly.
 
 Caprice (with Beatričė Bukantytė - work in progress) ♦  
 [Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/screenshot.png) (with Beatričė Bukantytė - work in progress) ♦  
-[Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing, with Amanda Egbe) ♦  
-[The Flower Beneath the Foot](http://www.the-flower-beneath-the-foot.com/) (in development) ♦  
+[Where Were You in 1992?](http://1992.maydayrooms.org) (2018 - ongoing, with Amanda Egbe) ♦  
+[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (2017 - in development) ♦  
+[Cinemembrane](https://www.rastko.co.uk//images/cinemembrane Full Flyer.pdf) (2016, with Amanda Egbe) ♦  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014) ♦  
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 2013) ♦  
 [April Showers](https://rosedetivoli.github.io/april_showers/) (2011) ♦  
@@ -24,7 +25,7 @@ Caprice (with Beatričė Bukantytė - work in progress) ♦
 Osmi mart (2010, with [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124)) ♦  
 [Vukovar 2009.](https://rosedetivoli.github.io/vukovar/) (2010, for [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124)) ♦  
 Antifa 2009. (2010, for [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124)) ♦  
-[Deptford | Tributes](http://www.deptfordtributes.co.uk/) (with Amanda Egbe, 2009) ♦  
+[Deptford | Tributes](https://player.vimeo.com/video/129543067) (with Amanda Egbe, 2009) ♦  
 [A guided tour of Climate Camp](https://www.youtube.com/watch?v=rLQRGaEfJ2A) (2009) ♦  
 [lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (2009) ♦  
 Signal | Deptford (with Amanda Egbe, 2009) ♦  
