@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Movies etc.
-permalink: /movies/
+title: Moving image
+permalink: /movingimage/
 ---
 
 ![](/images/screenshot.png)
