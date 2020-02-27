@@ -1,9 +1,9 @@
-**The Point of Longest Duration**
+**THE POINT OF LONGEST DURATION**
   
   
 
-On a very cold afternoon in January, I found myself in Edinburgh. Lucy Ellmann had agreed to meet me in a pub where we spent two hours discussing a number of things which are
-close to our hearts.  
+_On a very cold afternoon in January, I found myself in Edinburgh. Lucy Ellmann had agreed to meet me in a pub where we spent two hours discussing a number of things which are
+close to our hearts._  
 
 * * *  
 
