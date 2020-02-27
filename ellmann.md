@@ -2,8 +2,7 @@
   
   
 
-_On a very cold afternoon in January, I found myself in Edinburgh. Lucy Ellmann had agreed to meet me in a pub where we spent two hours discussing a number of things which are
-close to our hearts._  
+_On a very cold afternoon, I found myself in Edinburgh; Lucy Ellmann had agreed to meet me in a pub where we spent the next two hours discussing her work and a number of things which are close to our hearts._  
 
 * * *  
 
@@ -124,4 +123,5 @@ LE: Dutch trains… they’re not like Dutch trains, arriving on time and in ord
 RN: That’s as far as literary predecessors go. But I am also struck that you have used your own parents’ work in your own work. We are limited in knowing what can and will be useful to our descendants, because they will live in a different historical moment and they are different to us, and they will find inspiration where we sometimes saw dead-ends. Can you say more about this question of what we try to pass on to those coming and what we try to take from those who came before us?
 
 LE: I don’t know what to add. Yeah, you don’t know. Well, my parents died in their 60s and I felt that I didn’t get the full dose of them and there wasn’t enough handed down. What amazes me, and it’s not just motherhood, it’s parenthood – it’s amazing how this keeps going on. Are we innately moral, or we learn all these morals along the way… whether we stick by them or not. Are the parents doing all this? Or do you learn it at school? Do you learn it when you get arrested for not doing it right? But most of the time people seem to be inheriting this tradition and it goes way back, I don’t see a break. That’s why it’s so mind-boggling what Trump is like, because he openly ignores all this stuff, which people more or less agree is good. There’s something called compassion and he wants to defy that, I guess a lot of people do, or there have always been more people who have defied it than others, because there have always been so many criminals. As soon as you invent the computer, there are people rushing to sabotage it, and give everybody viruses. It occurred to me today though that if we’re all going to be taken over by robots, our saviours might be the hackers who give the robots the viruses, if the robots get out of control, I mean… But how will they ever get out of control, when you can’t even keep one computer working for more than 5 years? I think we’re safe from robots. Just don’t charge them up if they’re making trouble. 
-
+  
+_**Sunday, 12th January 2020**_
