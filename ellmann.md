@@ -1,4 +1,8 @@
-**THE POINT OF LONGEST DURATION**
+---
+layout: page
+title: The point of longest duration
+permalink: /ellmann/
+---  
   
   
 
