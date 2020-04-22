@@ -7,7 +7,7 @@ permalink: /all_works/
 The links below will take you to the project website, or movie directly.
 
 [Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (with Beatričė Bukantytė - work in progress) ♦  
-[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/screenshot.png) (with Beatričė Bukantytė - work in progress) ♦  
+[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (with Beatričė Bukantytė - work in progress) ♦  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (2018 - ongoing, with Amanda Egbe) ♦  
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (2017 - in development) ♦  
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (2016, with Amanda Egbe) ♦  
