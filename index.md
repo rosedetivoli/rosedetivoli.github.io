@@ -3,10 +3,4 @@ My work is collaborative and I mainly work with the moving image. I currently di
 ![](/images/quarry.jpg) 
 
 **twitter** [@singalongest](https://twitter.com/singalongest)  
-**contact me using the form below**
-<form>      
-  <input name="name" type="text" class="feedback-input" placeholder="Name" />   
-  <input name="email" type="text" class="feedback-input" placeholder="Email" />
-  <textarea name="text" class="feedback-input" placeholder="Comment"></textarea>
-  <input type="submit" value="SUBMIT"/>
-</form>
+**email** tetrys /// at /// posteo /// dot /// de  
