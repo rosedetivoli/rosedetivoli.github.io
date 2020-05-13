@@ -5,7 +5,12 @@ My work is collaborative and I mainly work with the moving image. I currently di
 **email** tetrys [at] posteo [dot] de  
 **twitter** [@singalongest](https://twitter.com/singalongest) 
 
-
+<form>      
+  <input name="name" type="text" class="feedback-input" placeholder="Name" />   
+  <input name="email" type="text" class="feedback-input" placeholder="Email" />
+  <textarea name="text" class="feedback-input" placeholder="Comment"></textarea>
+  <input type="submit" value="SUBMIT"/>
+</form>
 
 
      
