@@ -4,7 +4,7 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](/images/screenshot.png)
+![](/images/judy_juenger.jpeg)
 (still from _Pelyno Marija / Wormwood Maria_, work in progress)
   
 Below is a selection - for a full list of works since 2001, see [this page](https://rosedetivoli.github.io/all_works/).  
