@@ -4,13 +4,17 @@ title: All movies and artworks
 permalink: /all_works/
 ---
 
-The links below will take you to the project website, or movie directly.
+The links below will take you to the project website, or streaming link.
 
-[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (with Beatričė Bukantytė - work in progress) ♦  
+Ongoing works:  
+[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (with Beatričė Bukantytė - in development) ♦  
 [Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (with Beatričė Bukantytė - work in progress) ♦  
-[JUDY FOUR TIMES](https://www.rastko.co.uk//images/judy_juenger.jpeg) (5 min, 2020) ♦  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (2018 - ongoing, with Amanda Egbe) ♦  
-[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (2017 - in development) ♦  
+[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (in development) ♦  
+  
+Completed works:  
+[JUDY FOUR TIMES](https://www.rastko.co.uk//images/judy_juenger.jpeg) (5 min, 2020) ♦  
+[Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe, 2018/2019) ♦  
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (2016, with Amanda Egbe) ♦  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 25 min, 2014) ♦  
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 2013) ♦  
