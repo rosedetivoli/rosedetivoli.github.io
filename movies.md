@@ -5,7 +5,7 @@ permalink: /movingimage/
 ---
 
 ![](/images/judy_juenger.jpeg)  
-(still from _JUDY FOUR TIMES_, 2020)
+(poster for _JUDY FOUR TIMES_, 2020)
   
 Below is a selection - for a full list of works since 2001, see [this page](https://rosedetivoli.github.io/all_works/).  
   
