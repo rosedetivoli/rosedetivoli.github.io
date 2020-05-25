@@ -7,10 +7,10 @@ permalink: /all_works/
 The links below will take you to the project website, or streaming link.
 
 Ongoing works:  
-[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (with Beatričė Bukantytė - in development)   
-[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (with Beatričė Bukantytė - work in progress)   
-[Where Were You in 1992?](http://1992.maydayrooms.org) (2018 - ongoing, with Amanda Egbe)   
-[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (in development)   
+[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (short, with Beatričė Bukantytė - in development)   
+[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (short, with Beatričė Bukantytė - work in progress)   
+[Where Were You in 1992?](http://1992.maydayrooms.org) (multi-platform, since 2018, with Amanda Egbe)   
+[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
 O my little bark... (2020)  
@@ -19,8 +19,8 @@ O my little bark... (2020)
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (2016, with Amanda Egbe)   
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 25 min, 2014)   
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 2013)   
-[April Showers](https://rosedetivoli.github.io/april_showers/) (2011)   
-[Ripples](https://rosedetivoli.github.io/april_showers/) (2011)   
+[April Showers](https://rosedetivoli.github.io/april_showers/) (45 mins, 2011)   
+[Ripples](https://rosedetivoli.github.io/april_showers/) (45 mins, 2011)   
 [Excerpts of a Conversation](https://amp.0x2620.org/BPQ/player/00:00:02.876) (2011, with persons unknown)   
 [Geopolitical Everyday blog](https://geopoliticaleveryday.wordpress.com/) (2010-2011)   
 [Words From a Police Kettle](https://amp.0x2620.org/BPO/player) (2010, with persons unknown)   
@@ -33,7 +33,7 @@ Osmi mart (2010, with [Women in Black](http://zeneucrnom.org/index.php?option=co
 Antifa 2009. (2010, for [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124))   
 [Deptford | Tributes](https://player.vimeo.com/video/129543067) (with Amanda Egbe, 2009)   
 [A guided tour of Climate Camp](https://www.youtube.com/watch?v=rLQRGaEfJ2A) (2009)   
-[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (2009)   
+[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (80 mins, 2009)   
 Signal | Deptford (with Amanda Egbe, 2009)   
 Imprints (2009)   
 SPACEPLACE (with Amanda Egbe, 2008)   
