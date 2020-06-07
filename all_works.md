@@ -13,7 +13,9 @@ Ongoing works:
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
+[A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
 O my little bark... (2020)  
+time is sweet and salty in its revolutions (1 min, 2020)
 [JUDY FOUR TIMES](https://www.rastko.co.uk//images/judy_juenger.jpeg) (5 min, 2020)   
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe, 2018/2019)   
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)   
