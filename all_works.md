@@ -15,10 +15,11 @@ Ongoing works:
 Completed works:  
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
 O my little bark... (2020)  
-[JUDY FOUR TIMES](https://www.rastko.co.uk//images/judy_juenger.jpeg) (5 min, 2020)   
+[JUDY FOUR TIMES](https://vimeo.com/419995325/53ce74e295) (5 min, 2020)   
 time is sweet and salty in its revolutions (1 min, 2020)  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (with Amanda Egbe, 2018/2019)   
-[Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)   
+[Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)  
+[regen degen](https://regendegen.tumblr.com/) (11 video nasties co-authored with Steven Ball, 2015)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 25 min, 2014)   
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 4 mins, 2013)   
 [April Showers](https://rosedetivoli.github.io/april_showers/) (43 mins, 2011)   
