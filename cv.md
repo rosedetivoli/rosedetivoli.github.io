@@ -1,3 +1,9 @@
+---
+layout: page
+title: curriculum vitae
+permalink: /cv/
+---
+
 Rastko Novaković has authored over 50 moving image works, ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. He has exhibited sound works, outdoor installations, as well as a 15 meter long site-specific panorama. His work explores the recurrent themes of memory, landscape, the poetics of everyday life, social justice.  
 
 He has a wide experience of media projects, having collaborated with a number of artists and filmmakers, as well as completed work commissioned by ArtLink (Serbia), Newham Council, Arts Express, London Southbank University. He was awarded artist-in-residence by The Leverhulme Trust (2009) and Arts Council England (2017/2018).  
