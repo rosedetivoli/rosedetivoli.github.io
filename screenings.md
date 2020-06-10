@@ -1,4 +1,10 @@
-List of recent screenings (since 2015):  
+---
+layout: page
+title: Screenings
+permalink: /screenings/
+---
+
+List of screenings since 2015:  
 
 **JUDY FOUR TIMES**   
 - "SlipStream" curated by James Elsey and Bianca Hlywa // artists streaming in solidarity with refugee week //  - June 2020  
