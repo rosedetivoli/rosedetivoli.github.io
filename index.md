@@ -4,4 +4,4 @@ My work is collaborative and I mainly work with the moving image. I currently di
 **email** tetrys /// at /// posteo /// dot /// de  
 **cv** [here](https://www.rastko.co.uk/cv/)
   
-![](/images/quarry.jpg) 
+![](/images/svetozar.png) 
