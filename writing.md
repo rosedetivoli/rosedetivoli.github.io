@@ -10,8 +10,8 @@ permalink: /writing/
 
 [What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/), 2017  
 lebensraum | living space in [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/)    
-[How has the law and its interpretation affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015  
-[On cinema workers’ struggles London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best), 2014  
+[How has the law affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015  
+[London’s cinema strikes represent 21st Century trade unionism at its best](http://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best), 2014  
 [An essay on the making of _lebensraum | living space_](https://rosedetivoli.github.io/images/lebensraum-essay2.pdf), 2009  
 On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net/2008/06/the-body-electric/), 2008  
 [On the BBC film _Holocaust: A Music Memorial Film from Auschwitz_](https://rosedetivoli.github.io/holocaust/), 2007    
