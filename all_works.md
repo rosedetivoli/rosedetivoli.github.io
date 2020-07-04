@@ -15,6 +15,7 @@ Ongoing works:
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
+[for Black prophetic fire](https://vimeo.com/435354036/5e34990267) (6min, 2020)
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
 O my little bark... (2020)  
 [JUDY FOUR TIMES](https://vimeo.com/419995325/53ce74e295) (5 min, 2020)   
