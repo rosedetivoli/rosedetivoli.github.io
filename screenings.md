@@ -16,7 +16,7 @@ permalink: /screenings/
 **Where Were You In 1992? - Rumours of War**  
 - [IIPPE](http://iippe.org/) 9th Conference - Pula, Croatia - September 2018  
 - Screening and presentation at ["Besides the Screen"](http://besidesthescreen.com/) Conference - July 2018  
-- Project launch - May Day Rooms - April 2018  
+- [Project launch](https://maydayrooms.org/event/where-were-you-in-1992/) - May Day Rooms - April 2018  
 
 **Concrete Heart Land**  
 - [Pirate Cinema Berlin](https://piratecinema.org/screenings) - May 2018  
