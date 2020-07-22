@@ -35,8 +35,8 @@ The image, sound and text present alternating movements between figure and groun
 As the archaeological texture shifts from dialectical materialism to spiritual meditation, from confession to abstract speculation, the text undertakes a historical journey from the mid-19th century to the present day and a spatial one from Majdanpek to London. This process runs parallel to the movement of the words, the excavation of their different etymologies, and their tides within the dramatic structures of language.
   
 **Camera - Tri u dva ne ide: Srdjan Mitrovic  
-Sound- Twice Shy: Alex Impey  
-Spaces and times: Rastko Novakovic**  
+Sound - Twice Shy: Alex Impey  
+Spaces and times - Rastko Novakovic**  
   
 _Recorded in the town of Majdanpek, above Majdanpek’s mine, in Victoria Park and in the vicinity of the Westerkerk in Amsterdam,
 between August 2006 and January 2007._  
