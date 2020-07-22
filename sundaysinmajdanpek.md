@@ -8,7 +8,7 @@ permalink: /sundaysinmajdanpek/
   
 (SD video, 32 mins, 2007)  
 
-Steven Ball made an illuminating [interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) with me in 2007. Below are the original programme notes from the premiere in Whitechapel Project Space.  
+_Steven Ball made an illuminating [interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) with me in 2007. Below are the original programme notes from the premiere in Whitechapel Project Space._  
 
 **PART ONE: TRI U DVA NE IDE**
 
