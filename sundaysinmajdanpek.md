@@ -33,14 +33,12 @@ The image forms a texture in italics, its offset colours forming a dialogue of t
 The image, sound and text present alternating movements between figure and ground. Several contradictions are elaborated upon: the image recorded in Majdanpek and projected in London, the sounds recorded in London and the silence of the footage in Majdanpek, the silence surrounding a text and the silence within a text. The rhythm of the writing on screen takes its cues from the rhythms of an audio recording of a reading of the text, and remains the only index of the movements of the human body.
 
 As the archaeological texture shifts from dialectical materialism to spiritual meditation, from confession to abstract speculation, the text undertakes a historical journey from the mid-19th century to the present day and a spatial one from Majdanpek to London. This process runs parallel to the movement of the words, the excavation of their different etymologies, and their tides within the dramatic structures of language.
-
-
-*  
-Camera - Tri u dva ne ide: Srdjan Mitrovic  
-Sound- Twice Shy: Alex Impey  
-Spaces and times: Rastko Novakovic  
   
-Recorded in the town of Majdanpek, above Majdanpek’s mine, in Victoria Park and in the vicinity of the Westerkerk in Amsterdam,
-between August 2006 and January 2007.  
+**Camera - Tri u dva ne ide: Srdjan Mitrovic  
+Sound- Twice Shy: Alex Impey  
+Spaces and times: Rastko Novakovic**  
+  
+_Recorded in the town of Majdanpek, above Majdanpek’s mine, in Victoria Park and in the vicinity of the Westerkerk in Amsterdam,
+between August 2006 and January 2007._  
 
-Thank you: Noa Treister, Sasa Markovic Mikrob, Jan Adriaans, svi Majdanpecani - vidjeni i nevidjeni, Free Cinema Seven. 
+_Thank you: Noa Treister, Sasa Markovic Mikrob, Jan Adriaans, svi Majdanpecani - vidjeni i nevidjeni, Free Cinema Seven._  
