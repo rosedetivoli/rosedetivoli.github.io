@@ -1,9 +1,12 @@
 
 
 
-Steven Ball made an illuminating [interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) with me in 2007.
 
-PART ONE: TRI U DVA NE IDE
+
+
+Steven Ball made an illuminating [interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) with me in 2007. Below are the original programme notes from the premiere in Whitechapel Project Space.  
+
+**PART ONE: TRI U DVA NE IDE**
 
 
 Five shots of the town’s disused cinema present a fleeting document of the social space and history of Majdanpek, a devastated mining town in Eastern Serbia, built up during a period of Yugoslav optimism in 1961 and obliterating the existing settlement almost in its entirety. The cyclical gesture of entering the cinema, the expectations in starting afresh, tracing the same route with different images and sounds, invite the audience to enter between the shots and the frames and to explore their relationship to the moving image and the spaces it inhabits.
@@ -17,7 +20,7 @@ Tri u dva ne ide is also an inquiry into truth through the form of documentary r
 The to-ing and fro-ing of the camera and the text finds its culmination in the dash between two towns: Majdanpek and Vicenza, home and diaspora. This last image stands for a community which has for centuries been brought together and torn asunder by capital and modes of production. It remains consciously inadequate, unlike a plaque, of the space and time which are condensed in that symbol.
 
 
-PART TWO: TWICE SHY
+**PART TWO: TWICE SHY**
 
 A single uninterrupted shot of Majdanpek’s open mine in 4:3 aspect ratio is tilted so that its diagonal fits the 16:9 masking. It exemplifies that widescreen is suitable not only for coffins and snakes, but likewise for text. It stretches the tension between home video and cinema, the public and private, the lived and the represented, between offscreen space and the proscenium.
 
