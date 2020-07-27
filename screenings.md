@@ -4,6 +4,9 @@ title: Recent screenings
 permalink: /screenings/
 ---
 
+**lebensraum | living space**  
+- [Visual Anthropology Center, Belgrade](https://visualanthropologycenter.com/) - 30th July 2020
+
 **A divine comedy**
 - ["One Minute"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) volume 10, curated by Kerry Baldry - August 2020  
 
