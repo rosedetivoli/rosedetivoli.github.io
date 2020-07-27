@@ -5,7 +5,7 @@ permalink: /screenings/
 ---
 
 **lebensraum | living space**  
-- [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade - 30th July 2020
+- [Screening and discussion](https://www.facebook.com/events/3367177669984542/)at [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade - 30th July 2020
 
 **A divine comedy**
 - ["One Minute"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) volume 10, curated by Kerry Baldry - August 2020  
