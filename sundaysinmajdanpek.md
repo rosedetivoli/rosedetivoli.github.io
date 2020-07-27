@@ -4,8 +4,8 @@ title: Sundays in Majdanpek
 permalink: /sundaysinmajdanpek/
 ---
 
-<iframe src="https://player.vimeo.com/video/442072621/e55fec4c6d" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>  
-  
+<iframe src="https://player.vimeo.com/video/442072621" width="640" height="480" frameborder="0" allow="autoplay; fullscreen" allowfullscreen></iframe>  
+
 (SD video, 32 mins, 2007)  
 
 _Steven Ball made an illuminating [interview](http://www.studycollection.co.uk/sundaysinmajdanpek/) with me in 2007. Below are the original programme notes from the premiere in Whitechapel Project Space._  
