@@ -17,7 +17,7 @@ Ongoing works:
 Completed works:  
 [for Black prophetic fire](https://vimeo.com/435354036/5e34990267) (6 min, 2020)  
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
-O my little bark... (2020)  
+[O my little bark...](https://vimeo.com/420233262/7d27409630) (1.5 mins, 2020)
 [JUDY FOUR TIMES](https://vimeo.com/419995325/53ce74e295) (5 min, 2020)   
 time is sweet and salty in its revolutions (1 min, 2020)  
 [Where Were You in 1992?: Svetozar in Spring](https://vimeo.com/343830526) (9 min, 2019)  
