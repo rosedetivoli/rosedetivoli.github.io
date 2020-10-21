@@ -4,8 +4,8 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](/images/judy_juenger.jpeg)  
-(poster for _JUDY FOUR TIMES_, 2020)
+![](/images/JUDYprofit.jpg)  
+(still from _JUDY FOUR TIMES_, 2020)
   
 Below is a selection - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).  
   
