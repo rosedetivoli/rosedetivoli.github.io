@@ -23,11 +23,11 @@ permalink: /screenings/
 
 **Concrete Heart Land**  
 - [Pirate Cinema Berlin](https://piratecinema.org/screenings) - May 2018  
-- "Open Space" - Vienna - December 2016   
+- [Open Space](http://www.openspace-zkp.org/2013/en/about.php) - Vienna - December 2016   
 - "Whose London is it Anyway?" - Camden People's Theatre - London - January 2016  
 - Deptford Cinema - London - September 2015  
 - Bloc Projects - Sheffield - September 2015  
-- "London as Battlefield", BFI Southbank - London - August 2015  
+- [London as Battlefield](https://www.youtube.com/watch?v=Prdd9fshBn0), BFI Southbank - London - August 2015  
 - "Closed House Weekend: Stop the Blocks" - no.w.here - London - August 2015   
 - "Mapping Displacement and Resistance" - Goldsmiths - London - June 2015  
 - Crisis Mirror - Copenhagen - May 2015  
