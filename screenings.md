@@ -11,6 +11,7 @@ permalink: /screenings/
 - ["One Minute"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) volume 10, curated by Kerry Baldry - August 2020  
 
 **JUDY FOUR TIMES**   
+- Swedenborg Film Festival - December 2020  
 - "SlipStream" curated by James Elsey and Bianca Hlywa // artists streaming in solidarity with refugee week //  - June 2020  
 
 **Where Were You In 1992? - Svetozar in Spring**  
