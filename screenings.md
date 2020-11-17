@@ -10,6 +10,6 @@ permalink: /screenings/
 
 **A divine comedy** - ["One Minute"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) vol 10, curated by Kerry Baldry - August 2020  
 
-**lebensraum | living space** - [Screening and discussion](https://www.facebook.com/events/3367177669984542/) at [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade - 30th July 2020  
+**lebensraum / living space** - [Screening and discussion](https://www.facebook.com/events/3367177669984542/) at [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade - 30th July 2020  
 
 **Judy Four Times** - "SlipStream" curated by James Elsey and Bianca Hlywa // artists streaming in solidarity with refugee week //  - June 2020  
