@@ -3,6 +3,10 @@ layout: page
 title: Recent screenings
 permalink: /screenings/
 ---
+  
+**2021**  
+
+**Solo show** - [U10 gallery, Belgrade](http://u10.rs/about/) eight moving image works from the last decade, date TBC  
 
 **2020**
 
