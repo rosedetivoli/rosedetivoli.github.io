@@ -10,9 +10,9 @@ permalink: /screenings/
 
 **2020**
 
-**Judy Four Times** - Inconnu Festival - courts métrages indépendants, Paris - 27th November  
-
 **Judy Four Times** - [Swedenborg Film Festival](https://www.swedenborg.org.uk/events/swedenborg-film-festival-2020/) - 5th December  
+
+**Judy Four Times** - Inconnu Festival - courts métrages indépendants, Paris - 27th November  
 
 **A divine comedy** - ["One Minute"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) vol 10, curated by Kerry Baldry - throughout August 
 
