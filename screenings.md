@@ -6,6 +6,8 @@ permalink: /screenings/
   
 **2021**  
 
+**Festival Internacional de Videopoesía Videobardo**, Buenos Aires, date TBC  
+
 **Solo show** - [U10 gallery](http://u10.rs/about/) - eight moving image works from the last decade, date TBC  
 
 **2020**
