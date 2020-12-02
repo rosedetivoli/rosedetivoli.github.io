@@ -8,7 +8,7 @@ permalink: /screenings/
 
 **Judy Four Times** - [Festival Internacional de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires, date TBC  
 
-**Solo show** - [U10 gallery](http://u10.rs/about/) - eight moving image works from the last decade, date TBC  
+**Solo show** - [U10 gallery](http://u10.rs/about/), Belgrade - eight moving image works from the last decade, date TBC  
 
 **2020**
 
