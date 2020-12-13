@@ -5,4 +5,4 @@ My work is collaborative and I mainly work with the moving image. I currently di
 **cv** [here](https://www.rastko.co.uk/cv/)
   
 ![](/images/svetozar.png) 
-(still from [_Where Were You in 1992? - Svetozar in Spring_](https://vimeo.com/343830526), 2019)
+(still from [_Where Were You in 1992? - Svetozar in Spring_](https://1992.maydayrooms.org/spring.html), 2019)
