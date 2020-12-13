@@ -7,20 +7,19 @@ permalink: /all_works/
 The links below will take you to the project website, or streaming link.
 
 Ongoing works:  
-[Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png) (in development)  
-[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png) (in development)  
-[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (short, with Beatričė Bukantytė - work in progress)   
-[Where Were You in 1992?](http://1992.maydayrooms.org) (multi-platform, since 2018, with Amanda Egbe)   
+[Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png) (short, work-in-progress)  
+[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png) (short, in development)  
 [Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (short, with Beatričė Bukantytė - in development)   
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
+[Pelyno Marija / Wormwood Maria](https://www.rastko.co.uk//images/PM_WM_1_en.jpg) (with Beatričė Bukantytė, 28 min, 2021)   
 [for Black prophetic fire](https://vimeo.com/435354036/5e34990267) (6 min, 2020)  
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
 [O my little bark...](https://vimeo.com/420233262/7d27409630) (1.5 mins, 2020)  
 [JUDY FOUR TIMES](https://vimeo.com/419995325/53ce74e295) (5 min, 2020)   
 time is sweet and salty in its revolutions (1 min, 2020)  
-[Where Were You in 1992?: Svetozar in Spring](https://vimeo.com/343830526) (9 min, 2019)  
+[Where Were You in 1992?: Svetozar in Spring](https://1992.maydayrooms.org/spring.html) (9 min, 2019)  
 [Where Were You in 1992?: Rumours of War](https://1992.maydayrooms.org/rumours.html) (with Amanda Egbe, c14 min, 2018)   
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)  
 [regen degen](https://regendegen.tumblr.com/) (11 video nasties co-authored with Steven Ball, 2015)  
