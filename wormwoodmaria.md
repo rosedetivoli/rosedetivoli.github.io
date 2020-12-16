@@ -6,7 +6,7 @@ permalink: /wormwoodmaria/
 
 <iframe src="https://player.vimeo.com/video/490379036" width="640" height="360" frameborder="0" allow="autoplay; fullscreen" allowfullscreen></iframe>  
 
-**Pelyno Marija  
+**Pelyno Marija (Wormwood Maria)  
 Beatrice Bukantyte and Rastko Novaković  
 28 min, 2021**  
 
