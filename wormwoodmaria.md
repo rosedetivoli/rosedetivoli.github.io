@@ -5,7 +5,6 @@ permalink: /wormwoodmaria/
 ---
 
 <iframe src="https://player.vimeo.com/video/490379036" width="640" height="360" frameborder="0" allow="autoplay; fullscreen" allowfullscreen></iframe>
-<p><a href="https://vimeo.com/490379036">Wormwood Maria TRAILER</a> from <a href="https://vimeo.com/mosc">///</a> on <a href="https://vimeo.com">Vimeo</a>.</p>
 
 "Wormwood Maria" is based around two monologues of confrontation. In a charged landscape, a man remembers his past desires, vagabond journeys and betrayals from the 1930s and 1940s. Nearby, a young girl confronts the statue of the Virgin Mary with dreams, songs and injustices from the past.  
 
