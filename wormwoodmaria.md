@@ -4,7 +4,7 @@ title:
 permalink: /wormwoodmaria/
 ---
 
-<iframe src="https://player.vimeo.com/video/490379036?quality=720p" width="640" height="360" frameborder="0" allow="autoplay; fullscreen" allowfullscreen></iframe>  
+<iframe src="https://player.vimeo.com/video/490379036?quality=1080p" width="640" height="360" frameborder="0" allow="autoplay; fullscreen" allowfullscreen></iframe>  
 
 **Pelyno Marija (Wormwood Maria)  
 Beatričė Bukantytė and Rastko Novaković  
