@@ -13,7 +13,8 @@ Ongoing works:
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
-[Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 28 min, 2021)   
+[Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 28 min, 2021)     
+[Social order at the expense of liberty is hardly a bargain](https://vimeo.com/493358286/7b76ac976d) (5.30 min, 2020)  
 [for Black prophetic fire](https://vimeo.com/435354036/5e34990267) (6 min, 2020)  
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
 [O my little bark...](https://vimeo.com/420233262/7d27409630) (1.5 mins, 2020)  
