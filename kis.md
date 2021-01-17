@@ -6,7 +6,7 @@ permalink: /kis/
 
 ![kis_then](/images/kis.jpg)
 
-[translated by Ivana Đorđević]
+[first published in 1973, translated by Ivana Đorđević]
 
 Nationalism is first and foremost paranoia. Collective and individual paranoia. As collective paranoia it results from envy and fear, and most of all from the loss of individual consciousness; this collective paranoia is therefore simply an accumulation of individual paranoias at the pitch of paroxysm. If, in the framework of a social order, an individual is not able to “express himself,” because the order in question is not congenial and does not stimulate him as an individual, in other words does not allow him to assume an entity of his own, he is obliged to search for this entity outside identity and outside the so-called social structure. Thus he becomes a member of a pseudo-masonic group which seems to pose problems of epochal importance as its goals and objectives; the survival and prestige of a nation or nations, the preservation of tradition and the nation’s sacrosanct values – folkloric, philosophical, ethical, literary, et cetera. Invested with such a secret, semi-public, or public mission, A. N. Other becomes a man of action, a tribune of the people, a semblance of an individual. Once we have him cut down to size, isolated from the herd, and out of the pseudo-masonic lodge where he has installed himself or been installed by others, we are faced with an individual without individuality, a nationalist, cousin Jules.
 
