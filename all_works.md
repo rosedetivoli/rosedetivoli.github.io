@@ -40,7 +40,7 @@ Osmi mart (2010, with [Women in Black](http://zeneucrnom.org/index.php?option=co
 Antifa 2009. (2010, for [Women in Black](http://zeneucrnom.org/index.php?option=com_content&task=view&id=600&Itemid=124))   
 [Deptford | Tributes](https://player.vimeo.com/video/129543067) (with Amanda Egbe, 54 min, 2009)   
 [A guided tour of Climate Camp](https://www.youtube.com/watch?v=rLQRGaEfJ2A) (3.5 min 2009)   
-[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (80 min, 2009)   
+[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (with Ger Duijzings, 80 min, 2009/2020)   
 Signal | Deptford (with Amanda Egbe, 2009)   
 Imprints (2009)   
 SPACEPLACE (with Amanda Egbe, 2008)   
