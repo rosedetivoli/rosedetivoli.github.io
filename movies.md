@@ -15,6 +15,6 @@ Below is a selection - for a full list of works, see [this page](https://rosedet
 [Ripples](https://rosedetivoli.github.io/april_showers/) (2011)  
 [Waldron Panorama](https://rosedetivoli.github.io/waldron/) (with Amanda  Egbe, Oct 2010 – Feb 2011)  
 [Deptford | Tributes](https://player.vimeo.com/video/129543067) (with Amanda  Egbe, 2009)  
-[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (2009)  
+[lebensraum | living space](https://rosedetivoli.github.io/lebensraum/) (with Ger Duijzings, 2010/2020)  
 
   
