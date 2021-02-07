@@ -8,7 +8,7 @@ permalink: /darko/
 
 
 Darko Novaković  
-(1949 – 2018)  
+(3. X 1949 – 15. II 2018)  
 
   
   
