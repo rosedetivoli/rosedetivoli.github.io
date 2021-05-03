@@ -8,7 +8,7 @@ permalink: /wormwoodmaria/
 
 **Pelyno Marija (Wormwood Maria)  
 Beatričė Bukantytė and Rastko Novaković  
-28 min, 2021**  
+29 min, 2021**  
 
 "Wormwood Maria" features two monologues of confrontation. In a charged landscape, a man remembers his past desires, vagabond journeys and betrayals from the 1930s and 1940s. Nearby, a young girl confronts the statue of the Virgin Mary with dreams, songs and injustices from the past.  
   
