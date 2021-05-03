@@ -16,4 +16,4 @@ Our film brings Lithuanian history and landscape into collision with the writing
 
 _"Instead of wanting to create an impression that he is improvising, the actor should rather show what the truth is: he is quoting."_  
 
-Please get in touch to access the screener.  
+Directors' statement [here](https://rosedetivoli.github.io/images/PELYNOMARIJAstatement.pdf). Please get in touch to access the screener.  
