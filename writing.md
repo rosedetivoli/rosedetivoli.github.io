@@ -29,6 +29,7 @@ Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [B
 
 **_Texts that should be available elsewhere_**
 
+[LA MORT D'EMPEDOCLE de STRAUB & HUILLET - L'HEURE DE VERITE par CHARLES TESSON](https://rosedetivoli.github.io/images/verite.pdf) Cahiers du Cinéma, n394, April 1987
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
 [Andrei Platonov and the prospect of some potatoes](https://rosedetivoli.github.io/platonov)  
