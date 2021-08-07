@@ -8,6 +8,7 @@ permalink: /screenings/
 
 **Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires, date TBC  
 **8 works from the last decade** - [U10 gallery](http://u10.rs/about/), Belgrade, date TBC  
+**Wormwood Maria** - Trivium Gallery, Vilnius, August 15  
 
 **2020**
 
