@@ -8,8 +8,8 @@ The links below will take you to the project website, or streaming link.
 
 Ongoing works:  
 [Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png) (short, work-in-progress)  
-[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png) (short, in development)  
-[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (short, with Beatričė Bukantytė - in development)   
+[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png) (short, work-in-progress)  
+[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (short, with Beatričė Bukantytė - in production)   
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
   
 Completed works:  
