@@ -11,7 +11,7 @@ Ongoing works:
 [Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png)    
 [Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg)   
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/)     
-[So kindly to the cold stone is the fire...]
+[So kindly to the cold stone is the fire...](https://www.rastko.co.uk//images/sokindly.jpeg)  
   
 Completed works:  
 [Pravilni pesak](https://www.rastko.co.uk//images/PP_all.png) (in post)  
