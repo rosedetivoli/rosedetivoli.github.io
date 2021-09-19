@@ -7,13 +7,14 @@ permalink: /all_works/
 The links below will take you to the project website, or streaming link.
 
 Ongoing works:  
-[Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png) (short, work-in-progress)  
-[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png) (short, work-in-progress)  
-[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg) (short, with Beatričė Bukantytė, in post)   
-[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/) (feature, in development)   
-[Pravilni pesak](https://www.rastko.co.uk//images/PP_all.png) (in post)  
+[Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png)   
+[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png)    
+[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg)   
+[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/)     
+[So kindly to the cold stone is the fire...]
   
 Completed works:  
+[Pravilni pesak](https://www.rastko.co.uk//images/PP_all.png) (in post)  
 Er saw... (2 min, 2021)  
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 29 min, 2021)     
 [Social order at the expense of liberty is hardly a bargain](https://vimeo.com/493358286/7b76ac976d) (5.5 min, 2020)  
