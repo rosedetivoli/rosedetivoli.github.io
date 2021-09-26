@@ -6,8 +6,8 @@ permalink: /screenings/
   
 **2021**  
 
-**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires, date TBC  
-**8 works from the last decade** - [U10 gallery](http://u10.rs/about/), Belgrade, date TBC  
+**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires    
+**Pejzaži sa nečistom savešću / Landscapes with a guilty conscience** - [U10 gallery](http://u10.rs/about/), Belgrade, 13-16 October  
 **Wormwood Maria** - Trivium Gallery, Vilnius, August 15  
 
 **2020**
