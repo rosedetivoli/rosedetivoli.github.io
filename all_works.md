@@ -14,7 +14,7 @@ Ongoing works:
 [So kindly to the cold stone is the fire...](https://www.rastko.co.uk//images/sokindly.jpeg)  
   
 Completed works:  
-[Pravilni pesak](https://www.rastko.co.uk//images/PP_all.png) (with Beatričė Bukantytė, 6.5 min, 2021)  
+[Pravilni pesak](https://vimeo.com/611823350/a0bcbc9b02) (with Beatričė Bukantytė, 6.5 min, 2021)  
 Er saw... (2 min, 2021)  
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 29 min, 2021)     
 [Social order at the expense of liberty is hardly a bargain](https://vimeo.com/493358286/7b76ac976d) (5.5 min, 2020)  
