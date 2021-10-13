@@ -7,7 +7,7 @@ permalink: /screenings/
 **2021**  
 
 **A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2020/10/one-minutes-to-screen-at-contemporary.html) 6-7 November at Contemporary Art Ruhr, Germany  
-**Pejzaži sa nečistom savešću / Landscapes with a guilty conscience** - [U10 gallery](http://u10.rs/about/), Belgrade, 13-16 October  
+**[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery , Belgrade, 13-16 October  
 **Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires    
 **Wormwood Maria** - Wolves Independent International Film Festival, Lithuania, September  
 **Wormwood Maria** - Trivium Gallery, Vilnius, August 15  
