@@ -18,4 +18,4 @@ Rastko’s work has been shown internationally: at the _British Film Institute_,
 
 Rastko holds a BA (Hons) degree in Contemporary Media Practice from the _University of Westminster_, an MA in Research Architecture from _Goldsmiths College_ and a Diploma in Employment Law from the _Workers Educational Association_.
 
-Over the past decade he has been active in the housing and trade union movements. He is the company director of [Sick Rose LTD](http://sickrose.co.uk/). He is one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) here he teaches queer tango.
+Over the past decade he has been active in the housing and trade union movements. He is the company director of [Sick Rose LTD](http://sickrose.co.uk/). He is one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) where he teaches queer tango.
