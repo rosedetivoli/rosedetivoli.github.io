@@ -1,4 +1,4 @@
-I work with moving images and occassionally I write about things I can't stop thinking about.  
+I work with moving images and occasionally I write about things I can't stop thinking about.  
   
 **twitter** [@singalongest](https://twitter.com/singalongest)  
 **email** tetrys /// at /// posteo /// dot /// de  
