@@ -8,8 +8,8 @@ permalink: /writing/
 
 **_In English_**
 
-[Interview with Paul Mendez for The White Review](https://www.thewhitereview.org/feature/interview-with-paul-mendez/), 2021  
-[Interview with Lucy Ellmann for The White Review](https://www.thewhitereview.org/issue/issue-no-28/), Issue No. 28, July 2020  
+[Interview with Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
+[Interview with Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, July 2020  
 [What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/), 2017  
 lebensraum | living space in [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/), 2016    
 [How has the law affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015  
