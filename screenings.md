@@ -6,11 +6,11 @@ permalink: /screenings/
   
 **2021**  
 
+**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home/programaci%C3%B3n), Buenos Aires, Argentina, 28-30 November  
 **A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2020/10/one-minutes-to-screen-at-contemporary.html) 6-7 November at Contemporary Art Ruhr, Germany  
-**[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery , Belgrade, 13-16 October  
-**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home), Buenos Aires    
+**[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery , Belgrade, Serbia, 13-16 October  
 **Wormwood Maria** - Wolves Independent International Film Festival, Lithuania, September  
-**Wormwood Maria** - Trivium Gallery, Vilnius, August 15  
+**Wormwood Maria** - Trivium Gallery, Vilnius, Lithuania, August 15  
 
 **2020**
 
