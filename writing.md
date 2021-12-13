@@ -4,7 +4,7 @@ title: Writing
 permalink: /writing/
 ---
 
-![speaking](/images/rnitorijevci.jpg)  
+![](/images/flustern.png)  
 
 **_In English_**
 
