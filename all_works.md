@@ -11,9 +11,9 @@ Ongoing works:
 [Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png)    
 [Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg)   
 [The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/)     
-[So kindly to the cold stone is the fire...](https://www.rastko.co.uk//images/sokindly.jpeg)  
-  
+
 Completed works:  
+[So kindly to the cold stone is the fire...] (3 min, 2022)  
 [Pravilni pesak](https://vimeo.com/611823350/a0bcbc9b02) (with Beatričė Bukantytė, 6.5 min, 2021)  
 Er saw... (2 min, 2021)  
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 29 min, 2021)     
