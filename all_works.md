@@ -4,15 +4,8 @@ title: All movies and artworks
 permalink: /all_works/
 ---
 
-The links below will take you to the project website, or streaming link.
-
-Ongoing works:  
-[Es begann mit dem Flüstern](https://www.rastko.co.uk//images/flustern.png)   
-[Zephyr, deb](http://www.rastko.co.uk/images/zephyr.png)    
-[Caprice](https://www.rastko.co.uk//images/caprice_mood_board.jpg)   
-[The Flower Beneath the Foot](https://theflowerbeneaththefoot.com/)     
-
-Completed works:  
+_The links below will take you to the project website, or streaming link._  
+  
 [So kindly to the cold stone is the fire...](https://vimeo.com/660201404/4751f51044) (3 min, 2022)  
 [Pravilni pesak](https://vimeo.com/611823350/a0bcbc9b02) (with Beatričė Bukantytė, 6.5 min, 2021)  
 Er saw... (2 min, 2021)  
