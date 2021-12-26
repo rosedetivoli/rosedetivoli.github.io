@@ -4,5 +4,5 @@ I work with moving images and occasionally I write about things I can't stop thi
 **email** tetrys /// at /// posteo /// dot /// de  
 **cv** [here](https://www.rastko.co.uk/cv/)
   
-![](/images/svetozar.png) 
-(still from [_Where Were You in 1992? - Svetozar in Spring_](https://1992.maydayrooms.org/spring.html), 2019)
+![](/images/sokindly.png) 
+(still from [_So kindly is the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044), 2022)
