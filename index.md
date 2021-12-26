@@ -5,4 +5,4 @@ I work with moving images and occasionally I write about things I can't stop thi
 **cv** [here](https://www.rastko.co.uk/cv/)
   
 ![](/images/kindly.png) 
-(still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044), 2022)
+(still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044))
