@@ -4,7 +4,7 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-<img src="images/JUDYprofit.jpg" width="60%">  
+![](/images/JUDYprofit.jpg)  
 
 (still from [_JUDY FOUR TIMES_](https://vimeo.com/419995325/53ce74e295), 2020)
   
