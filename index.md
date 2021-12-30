@@ -6,6 +6,4 @@ I work with moving images and occasionally I write about things I can't stop thi
   
 ![](/images/kindly.png) 
 
-![So kindly](images/kindly.png){ height=720px }
-
 (still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044))  
