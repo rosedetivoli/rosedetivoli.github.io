@@ -3,8 +3,8 @@ layout: page
 title: Writing
 permalink: /writing/
 ---
-
-![](/images/flustern.png)  
+  
+<img src="images/flustern.png" width="540px">  
 
 **_In English_**
 
