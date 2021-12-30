@@ -4,5 +4,8 @@ I work with moving images and occasionally I write about things I can't stop thi
 **email** tetrys /// at /// posteo /// dot /// de  
 **cv** [here](https://www.rastko.co.uk/cv/)
   
-![](/images/kindly.png)  
+![](/images/kindly.png) 
+
+![So kindly](images/kindly.png){ height=720px }
+
 (still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044))  
