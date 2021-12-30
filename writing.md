@@ -4,7 +4,7 @@ title: Writing
 permalink: /writing/
 ---
   
-<img src="images/flustern.png" width="60%">  
+![](/images/flustern.png)  
 
 **_In English_**
 
