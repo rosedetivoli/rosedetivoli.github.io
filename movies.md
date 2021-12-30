@@ -4,7 +4,8 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](/images/JUDYprofit.jpg)  
+<img src="images/JUDYprofit.jpg" width="540px">  
+
 (still from [_JUDY FOUR TIMES_](https://vimeo.com/419995325/53ce74e295), 2020)
   
 Below is a selection - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).  
