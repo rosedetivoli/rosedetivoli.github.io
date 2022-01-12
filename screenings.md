@@ -3,18 +3,22 @@ layout: page
 title: Recent screenings
 permalink: /screenings/
 ---
+
+**2022**  
+  
+**A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2022/01/one-minute-volume-ten-screening-at-303.html) vol 10 at 303 Projects, 15th January  
   
 **2021**  
 
-**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home/programaci%C3%B3n), Buenos Aires, Argentina, 28-30 November  
-**A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2020/10/one-minutes-to-screen-at-contemporary.html) 6-7 November at Contemporary Art Ruhr, Germany  
-**[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery , Belgrade, Serbia, 13-16 October  
+**Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home/programaci%C3%B3n), Buenos Aires, Argentina, 28-30th November  
+**A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2020/10/one-minutes-to-screen-at-contemporary.html) vol 10, Contemporary Art Ruhr, Germany, 6-7 November    
+**[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery, Belgrade, Serbia, 13-16th October  
 **Wormwood Maria** - Wolves Independent International Film Festival, Lithuania, September  
-**Wormwood Maria** - Trivium Gallery, Vilnius, Lithuania, August 15  
+**Wormwood Maria** - Trivium Gallery, Vilnius, Lithuania, 15th August    
 
 **2020**
 
-**Judy Four Times** - [Swedenborg Film Festival](https://www.swedenborg.org.uk/events/swedenborg-film-festival-2020/), London, 5 Dec  
+**Judy Four Times** - [Swedenborg Film Festival](https://www.swedenborg.org.uk/events/swedenborg-film-festival-2020/), London, 5th Dec  
 **A divine comedy** - ["One Minutes"](http://oneminuteartistfilms.blogspot.com/2020/07/one-minute-volume-ten.html) vol 10, August  
-**lebensraum / living space** - [Screening](https://www.facebook.com/events/3367177669984542/) and [discussion](http://www.rastko.co.uk//images/ovekove%C4%8Deno.gif) at [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade, 30 Jul  
+**lebensraum / living space** - [Screening](https://www.facebook.com/events/3367177669984542/) and [discussion](http://www.rastko.co.uk//images/ovekove%C4%8Deno.gif) at [Visual Anthropology Center](https://visualanthropologycenter.com/), Belgrade, 30th Jul  
 **Judy Four Times** - "SlipStream" curated by James Elsey and Bianca Hlywa // artists streaming in solidarity with refugee week //, June 
