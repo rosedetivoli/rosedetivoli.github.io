@@ -6,7 +6,7 @@ permalink: /screenings/
 
 **2022**  
   
-**A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2022/01/one-minute-volume-ten-screening-at-303.html) vol 10 at 303 Projects, 15th January  
+**A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2022/01/one-minute-volume-ten-screening-at-303.html) vol 10 at 303 Projects, through January and February  
   
 **2021**  
 
