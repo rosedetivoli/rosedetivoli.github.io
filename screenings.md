@@ -6,6 +6,7 @@ permalink: /screenings/
 
 **2022**  
   
+**Judy Four Times** - The Case of Poor Images, Artget gallery, Cultural Centre of Belgrade, 14 April - 19 May     
 **A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2022/01/one-minute-volume-ten-screening-at-303.html) vol 10 at 303 Projects, through January and February  
   
 **2021**  
