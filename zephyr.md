@@ -4,7 +4,7 @@ title: Zephyr, deb
 permalink: /zephyr/
 ---
 
-![z](/images/zephyr1.png)
+![z](/images/zephyr2.png)
 
 (63 min. / 2022)  
 Based on the novel _Ida_ by Gertrude Stein  
