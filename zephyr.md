@@ -14,9 +14,4 @@ Sound recording _Mia Kukathasan_
 Sound mix _Lia Mazzari_  
 Dedicated to _Zephyr Oisín Kenna Wood_  
 
-Heroic and humdrum, a woman's life told in nine chapters by an unnamed female narrator.  
-  
-"_She lives where she is not. Not what. Not careful._"  
-  
-The woman is called Ida. The sentences are short - they are simple, but the meaning is not. They were written by Gertrude Stein in her novel _Ida_ from 1941.  
-  
+Heroic and humdrum, a woman's life told in nine chapters by an unnamed female narrator. "_She lives where she is not. Not what. Not careful._" The woman is called Ida. The sentences are short - they are simple, but the meaning is not. They were written by Gertrude Stein in her novel _Ida_ from 1941.  
