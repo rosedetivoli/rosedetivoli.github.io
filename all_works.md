@@ -7,7 +7,7 @@ permalink: /all_works/
 _The links below will take you to the project website, or streaming link._  
   
 [Caprice](https://www.imdb.com/title/tt16897648/) (with Beatričė Bukantytė, 15 min, 2022)  
-[Zephyr, deb](https://www.imdb.com/title/tt18263828/) (63 min, 2022)    
+[Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (63 min, 2022)    
 [So kindly to the cold stone is the fire...](https://vimeo.com/660201404/4751f51044) (3 min, 2022)  
 [Pravilni pesak](https://vimeo.com/611823350/a0bcbc9b02) (with Beatričė Bukantytė, 6.5 min, 2021)  
 Er saw... (2 min, 2021)  
