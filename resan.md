@@ -1,11 +1,10 @@
 ---
 layout: page
-title: resan
+title: The Journey
 permalink: /resan/
 ---
 
 ![](/images/poster.png)  
-**The Journey**  
 (Sweden, Canada, Australia, New Zealand, USSR, Mexico, Japan, Scotland, Polynesia, Mozambique, Denmark, France, Norway, West Germany and USA / 1987 / 873 min)  
 
 _“This film is about systems: the systems under which we all live, and the mechanisms they use to deprive us of information and participation.”_  
