@@ -24,6 +24,7 @@ The film bears particular relevance to Scotland, as it features interviews with 
 [Book tickets for Glasgow CCA screenings in June here](https://www.cca-glasgow.com/programme/the-journey)  
 [Official film page](http://pwatkins.mnsi.net/journey.htm)   
 [VOD - catch up at home](https://www.capuseen.com/films/4377-the-journey-1-peter-watkins)   
+[Reflections on the film by Peter Watkins from 1987](https://www.rastko.co.uk/images/A_voyage_of_discovery.pdf)  
 [Essay on the media crisis by Peter Watkins from 2010](http://www.ocec.eu/cinemacomparativecinema/index.php/en/11-materiales-web/387-notes-on-the-media-crisis)   
   
 **Thank you**: Peter Watkins, Cécile Farkas (Doriane Films), Prof. Ken Nolley, Sam and Susan Smillie, Elizabeth Peters (Willamette University Library), Angie Zelter & Trident Ploughshares, Storm Patterson (BFI Special Collections), Tatia Shaburishvili, Jan Pester, Eleanor Watkins (BFI Library), Carolyn Wilson, Keifer Taylor, Kieron Corless, Neil Gray, Gareth Evans, Helen Hughes, Matthias Kispert, Megan Fraser, Prof. Scott Macdonald.    
