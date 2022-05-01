@@ -6,7 +6,9 @@ permalink: /resan/
 
 ![](/images/poster.png)  
 (Sweden, Canada, Australia, New Zealand, USSR, Mexico, Japan, Scotland, Polynesia, Mozambique, Denmark, France, Norway, West Germany and USA / 1987 / 873 min)  
-
+  
+Glasgow CCA: 2, 4, 7, 8, 10, 11 June 2022  
+  
 _“This film is about systems: the systems under which we all live, and the mechanisms they use to deprive us of information and participation.”_  
 Peter Watkins  
 
