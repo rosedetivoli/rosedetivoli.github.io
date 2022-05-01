@@ -19,7 +19,7 @@ We will be screening this rarely seen film in its entirety, spreading the 19 par
   
 The film bears particular relevance to Scotland, as it features interviews with a family from Dumbarton, a community from the Isle of Lewis opposing the construction of the local NATO base in Stornoway and many people in Glasgow who participated in a pseudo-documentary section of the film acting out the repression of dissenters in case of a nuclear war.  
 
-Book tickets for Glasgow CCA here:  
-Official page: [http://pwatkins.mnsi.net/journey.htm]   
-VOD catch up at home: [https://www.capuseen.com/films/4377-the-journey-1-peter-watkins]   
-Essay on the media crisis by Peter Watkins from 2010: [http://www.ocec.eu/cinemacomparativecinema/index.php/en/11-materiales-web/387-notes-on-the-media-crisis]   
+[Book tickets for Glasgow CCA screenings in June here](dud)  
+[Official film page](http://pwatkins.mnsi.net/journey.htm)   
+[VOD - catch up at home](https://www.capuseen.com/films/4377-the-journey-1-peter-watkins)   
+[Essay on the media crisis by Peter Watkins from 2010](http://www.ocec.eu/cinemacomparativecinema/index.php/en/11-materiales-web/387-notes-on-the-media-crisis)   
