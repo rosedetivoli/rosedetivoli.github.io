@@ -21,7 +21,7 @@ We will be screening this rarely seen film in its entirety, spreading the 19 par
   
 The film bears particular relevance to Scotland, as it features interviews with a family from Dumbarton, a community from the Isle of Lewis opposing the construction of the local NATO base in Stornoway and many people in Glasgow who participated in a pseudo-documentary section of the film acting out the repression of dissenters in case of a nuclear war.  
 
-[Book tickets for Glasgow CCA screenings in June here](https://www.cca-glasgow.com/programme/the-journey)  
+Book tickets for all Glasgow CCA screenings in June [here](https://ccaglasgow.ticketsolve.com/shows/873634763) or individual screenings [here](https://www.cca-glasgow.com/whats-on/collection/peter-watkins-the-journey)  
 [Official film page](http://pwatkins.mnsi.net/journey.htm)   
 [VOD - catch up at home](https://www.capuseen.com/films/4377-the-journey-1-peter-watkins)   
 [Reflections on the film by Peter Watkins from 1987](https://www.rastko.co.uk/images/A_voyage_of_discovery.pdf)  
