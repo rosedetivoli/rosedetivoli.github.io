@@ -7,7 +7,8 @@ permalink: /screenings/
 **2022**  
   
 **"The Journey" by Peter Watkins** - [screenings and discussions at Glasgow CCA](http://www.rastko.co.uk/resan/), 2-11 June    
-**Where Were You In 1992?** - [Essay Film Festival](https://web.archive.org/web/20220412181308/https://www.bbk.ac.uk/events/remote_event_view?id=29830), BIMI, London, 27 May    
+**Where Were You In 1992?** - [Essay Film Festival](https://web.archive.org/web/20220412181308/https://www.bbk.ac.uk/events/remote_event_view?id=29830) screening/presentation/discussion, BIMI, London, 27 May    
+**Where Were You In 1992?** - shown as part of [Amanda Egbe solo show Hide & Seek](http://web.archive.org/web/20220402184945/https://www.broadway-letchworth.com/amandaegbehideandseek) at Broadway Gallery, Letchworth, UK - 24 Mar – 8 May  
 **Judy Four Times** - [The Case of Poor Images](https://web.archive.org/web/20220412180828/https://www.kcb.org.rs/2022/04/slucaj-siromasnih-slika-grupna-medjunarodna-izlozba/), Artget gallery, Cultural Centre of Belgrade, 14 April - 19 May     
 **A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2022/01/one-minute-volume-ten-screening-at-303.html) vol 10 at 303 Projects, through January and February  
   
