@@ -6,6 +6,7 @@ permalink: /screenings/
 
 **2022**  
   
+**So kindly to the cold stone is the fire…** - [Deptford X Mobile Cinema](https://web.archive.org/web/20220915130926/https://deptfordx.org/event/izzy-mcevoy-and-jemma-egan-mobile-cinema/), 23-24 September  
 **"The Journey" by Peter Watkins** - [screenings and discussions at Glasgow CCA](http://www.rastko.co.uk/resan/), 2-11 June    
 **Where Were You In 1992?** - [Essay Film Festival](https://web.archive.org/web/20220412181308/https://www.bbk.ac.uk/events/remote_event_view?id=29830) screening/presentation/discussion, BIMI, London, 27 May    
 **Where Were You In 1992?** - shown as part of [Amanda Egbe solo show Hide & Seek](http://web.archive.org/web/20220402184945/https://www.broadway-letchworth.com/amandaegbehideandseek) at Broadway Gallery, Letchworth, UK - 24 Mar – 8 May  
