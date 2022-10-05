@@ -8,7 +8,8 @@ permalink: /writing/
 
 **_In English_**
 
-_Communist Photosynthesis_, an essay on the film _O somma luce_ (2011) by Jean-Marie Straub, forthcoming in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
+_Communist Photosynthesis_, forthcoming in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
+[Interview with James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
 [Interview with Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
 [Interview with Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, July 2020  
 [What can queer tango learn from intersectionality?](https://rosedetivoli.github.io/qts_inter/), 2017  
