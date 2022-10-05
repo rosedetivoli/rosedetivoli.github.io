@@ -10,7 +10,7 @@ He has a wide experience of media projects, having collaborated with a number of
 
 Over the years, Rastko has worked on video activist and DIY media projects with a feminist antimilitarist group ([Women in Black](http://zeneucrnom.org/index.php?lang=en), Serbia), a climate justice group (Climate Camp, UK) and [London Indymedia](https://imc.maydayrooms.org/). He is currently coordinator of the [Activist Media Project](https://amp.0x2620.org/).  
 
-He has contributed to [The White Review](https://www.thewhitereview.org/), [Peščanik](https://pescanik.net/).  
+He has contributed to [The White Review](https://www.thewhitereview.org/), [Salvage](https://salvage.zone/), [Peščanik](https://pescanik.net/).  
 
 He has lectured on the theory and practice of experimental film and video at the _University of Westminster_ as well as Urban Practices at _University College London_. He co-initiated the interdisciplinary exhibition Cities Methodologies (2009) which explores the intersection of art and urban practices. He is a contributor to the book [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (eds. Duijzings/Campkin, I.B. Tauris, 2016) which collects work featured in Cities Methodologies. His essay on the film _O somma luce_ (2011) by Jean-Marie Straub is forthcoming in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14).   
 
