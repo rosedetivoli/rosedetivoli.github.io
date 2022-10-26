@@ -9,6 +9,7 @@ permalink: /writing/
 **_In English_**
 
 _Communist Photosynthesis_, forthcoming in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
+[Sabzian PRISMA #51](https://sabzian.be/prisma/prisma-51) on the use of black frames in _The Journey_ by Peter Watkins  
 [Interview with James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
 [Interview with Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
 [Interview with Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, July 2020  
