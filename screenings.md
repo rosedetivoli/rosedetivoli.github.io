@@ -6,7 +6,7 @@ permalink: /screenings/
 
 **2022**  
 
-**Caprice** - [Scanorama Festival, Glimpses of Europe competition](https://scanorama.lt/en/glimpses-of-europe), Vilnius 10-20 November  
+**Caprice** - [Scanorama Festival, Glimpses of Europe competition](https://web.archive.org/web/20221103222519/https://scanorama.lt/en/edition/2022/films/caprice?back=https%3A%2F%2Fscanorama.lt%2Fen%2Fedition%2F2022%3Ftype%3Dselection%26selection%3D273%2A), Vilnius 10-20 November  
 **"The Journey" by Peter Watkins** - [screenings and discussions in Vilnius and Kaunas](https://web.archive.org/web/20220922163456/https://www.facebook.com/events/1241711636401775/1241711639735108/?active_tab=about), 6-30 October  
 **So kindly to the cold stone is the fire…** - [Deptford X Mobile Cinema](https://web.archive.org/web/20220915130926/https://deptfordx.org/event/izzy-mcevoy-and-jemma-egan-mobile-cinema/), 23-24 September  
 **"The Journey" by Peter Watkins** - [screenings and discussions at Glasgow CCA](http://www.rastko.co.uk/resan/), 2-11 June    
