@@ -4,12 +4,13 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](/images/JUDYprofit.jpg)  
+![](/images/PP_all.png)  
 
-(still from [_JUDY FOUR TIMES_](https://vimeo.com/419995325/53ce74e295), 2020)
+(stills from [_Regular Sand_](https://vimeo.com/611823350/a0bcbc9b02), 2021)
   
 Below is a selection - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).  
-
+  
+[Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (2022)   
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 2021)  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (ongoing project with Amanda Egbe, 2018 -)  
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 2014)  
