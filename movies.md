@@ -8,7 +8,7 @@ permalink: /movingimage/
 
 (stills from [_Regular Sand_](https://vimeo.com/611823350/a0bcbc9b02), 2021)
   
-Below is a selection - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).  
+_Below is a selection - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/)_  
   
 [Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (2022)   
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 2021)  
