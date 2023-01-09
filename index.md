@@ -1,8 +1,8 @@
-I work with moving images and occasionally I write about things I can't stop thinking about.  
   
-**twitter** [@singalongest](https://twitter.com/singalongest)  
-**email** tetrys /// at /// posteo /// dot /// de  
-**cv** [here](https://www.rastko.co.uk/cv/)
+[**SCREENINGS**](https://www.rastko.co.uk/screenings/)  -  [**CV**](https://www.rastko.co.uk/cv/)  -  [**TWITTER**](https://twitter.com/singalongest)  - 
+**EMAIL** tetrys /// at /// posteo /// dot /// de  
+  
+  
   
 ![](images/kindly.png)
 
