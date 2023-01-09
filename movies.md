@@ -4,9 +4,9 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](/images/PP_all.png)  
+![](/images/if.png)  
 
-(stills from [_Regular Sand_](https://vimeo.com/611823350/a0bcbc9b02), 2021)
+(still from [_Regular Sand_](https://vimeo.com/611823350/a0bcbc9b02), 2021)
   
 _Below is a selection of films - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/)_  
   
