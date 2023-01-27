@@ -1,8 +1,8 @@
----
-layout: page
-title: inclinations
-permalink: /inclinations/
----
+---  
+layout: page  
+title: inclinations  
+permalink: /inclinations/  
+---  
 
 **INCLINATIONS!_!_**  
 Film Club @ Glasgow CCA  
