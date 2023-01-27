@@ -6,7 +6,8 @@ permalink: /inclinations/
 
 **INCLINATIONS!_!_**  
 Film Club @ Glasgow CCA  
-  
+[Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
+    
 _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films.  
 We aim to show Scottish premieres._  
   
