@@ -1,6 +1,6 @@
 ---  
 layout: page  
-title: inclinations  
+title:
 permalink: /inclinations/  
 ---  
 
