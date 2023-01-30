@@ -20,4 +20,6 @@ He has lectured on the theory and practice of experimental film and video at the
 
 Rastko holds a BA (Hons) degree in Contemporary Media Practice from the _University of Westminster_, an MA in Research Architecture from _Goldsmiths College_ and a Diploma in Employment Law from the _Workers Educational Association_. He has been active in the housing and trade union movements.  
   
-He is the company director of [Sick Rose LTD](http://sickrose.co.uk/). He is one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) where he teaches queer tango.
+As one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) he teaches queer tango.  
+  
+He is the programmer and host of [INCLINATIONS Film Club](https://www.rastko.co.uk/inclinations/) at Glasgow's CCA.  
