@@ -33,7 +33,8 @@ Umesto toga tzv. levica servira švedski sto opravdanja za to da je NATO glavni 
 
 I tako Evroatlantida vodi najpravedniji rat u istoriji sveta, koji paradoksalno nije objavila i koji otvoreno ne priznaje. Za sad, potpomognuta svojim medijima, uspeva da obmane svoje narode da je sve ovo njima u zaštitu i reakcija na poludeli ruski militarizam. Ima nas još koji mislimo da je američko-evropski militarizam samo druga strana novčića. Ove nedelje bićemo opet na ulici u Vašingtonu, Berlinu i Londonu. Nama nije teško da kažemo: ne u naše ime.  
   
-Chris Hedges https://chrishedges.substack.com/p/listen-to-this-text-of-the-talk-i#details  
-Clare Daly https://twitter.com/ClareDalyMEP/status/1627657652162506752  
-Scott Ritter https://www.scottritterextra.com/p/the-best-speech-i-never-gave?utm_source=direct&r=1ldiwr&utm_campaign=post&utm_medium=web  
+**20. februar 2023.**  
+  
+    
+P.S. Još nekoliko lepih reči ovde: [Chris Hedges](https://chrishedges.substack.com/p/listen-to-this-text-of-the-talk-i#details), [Clare Daly](https://twitter.com/ClareDalyMEP/status/1627657652162506752), [Scott Ritter](https://www.scottritterextra.com/p/the-best-speech-i-never-gave?utm_source=direct&r=1ldiwr&utm_campaign=post&utm_medium=web), [Vedrana Rudan](https://www.rudan.info/zivio-joe-biden/) itd.  
 
