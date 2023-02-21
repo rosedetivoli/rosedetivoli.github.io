@@ -31,4 +31,9 @@ Nekima smeta sećanje na Karla Libknehta i Rozu Luksemburg. Navodno oni su bili 
 
 Umesto toga tzv. levica servira švedski sto opravdanja za to da je NATO glavni branik mira i stabilnosti u Evropi. Te: NATO je defanzivna alijansa (uz ovo redovno ide mantra: "ničim izazvana ruska agresija"). Te: ne znate vi šta je ruski imperijalizam. Te: ona stara "teorija domina" koja je bila opravdanje za genocid u Koreji i Vijetnamu (kad završe sa Ukrajinom prećiće na Litvaniju ili Poljsku). Te: Rusi su degenerici, nacoši i protiv ljudskih prava. I naravno, ona najstarija, pre Tvitera, a kao tamo da se iznedrila: Putin je Hitler. 
 
-I tako Evroatlantida vodi najpravedniji rat u istoriji sveta, koji paradoksalno nije objavila i koji otvoreno ne priznaje. Za sad, potpomognuta svojim medijima, uspeva da obmane svoje narode da je sve ovo njima u zaštitu i reakcija na poludeli ruski militarizam. Ima nas još koji mislimo da je američko-evropski militarizam samo druga strana novčića. Ove nedelje bićemo opet na ulici u Vašingtonu, Berlinu i Londonu. Nama nije teško da kažemo: ne u naše ime.
+I tako Evroatlantida vodi najpravedniji rat u istoriji sveta, koji paradoksalno nije objavila i koji otvoreno ne priznaje. Za sad, potpomognuta svojim medijima, uspeva da obmane svoje narode da je sve ovo njima u zaštitu i reakcija na poludeli ruski militarizam. Ima nas još koji mislimo da je američko-evropski militarizam samo druga strana novčića. Ove nedelje bićemo opet na ulici u Vašingtonu, Berlinu i Londonu. Nama nije teško da kažemo: ne u naše ime.  
+  
+Chris Hedges https://chrishedges.substack.com/p/listen-to-this-text-of-the-talk-i#details  
+Clare Daly https://twitter.com/ClareDalyMEP/status/1627657652162506752  
+Scott Ritter https://www.scottritterextra.com/p/the-best-speech-i-never-gave?utm_source=direct&r=1ldiwr&utm_campaign=post&utm_medium=web  
+
