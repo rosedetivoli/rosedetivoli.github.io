@@ -7,7 +7,7 @@ Slavoj Žižek se odrekao smisla za humor u svojoj popovskoj službi militarizmu
   
 Ne časimo časa, već čitajmo zajedno šta Žižek piše u svom novom tekstu "Mračna strana neutralnosti":  
 
-> Prošlog maja, pre nego što je ponovo izabran za predsednika Brazila, Luiz Inasio Lula da Silva tvrdio je da ukrajinski predsednik Volodimir Zelenski i njegov ruski kolega Vladimir Putin snose jednaku odgovornost za rat u Ukrajini. Bilo da dolazi iz Brazila, Južne Afrike ili Indije, tvrdnja da se može biti „neutralan“ u ruskom agresorskom ratu nije održiva. Isto važi i na individualnom planu. Ako bi prolaznik video čoveka kako nemilosrdno tuče dete, očekivali bismo da pokuša da ga spreči. Neutralnost ne dolazi u obzir. Naprotiv, prezirali bismo moralnu niskost pasivnog ponašanja prolaznika.
+> Prošlog maja, pre nego što je ponovo izabran za predsednika Brazila, Luiz Inasio Lula da Silva tvrdio je da ukrajinski predsednik Volodimir Zelenski i njegov ruski kolega Vladimir Putin snose jednaku odgovornost za rat u Ukrajini. Bilo da dolazi iz Brazila, Južne Afrike ili Indije, tvrdnja da se može biti „neutralan“ u ruskom agresorskom ratu nije održiva. Isto važi i na individualnom planu. Ako bi prolaznik video čoveka kako nemilosrdno tuče dete, očekivali bismo da pokuša da ga spreči. Neutralnost ne dolazi u obzir. Naprotiv, prezirali bismo moralnu niskost pasivnog ponašanja prolaznika.  
   
 Prvo pravilo militarizma je da neutralnih nema: ili si s nama, ili protiv nas. A ako si protiv nas, a jedan si od nas, onda si izdajnik i neprijatelj. Tako militarizam gura svoj narod da stane uz državu i vojsku, a guši pacifiste, antimilitariste i levičare.
   
