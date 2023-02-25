@@ -15,7 +15,7 @@ MAZALO KAŽE:
 To će mir duže potrajati.  
 Onda bi trebalo i da se kaže:  
 Što se više semena baci u zemlju,  
-Rodice manje žita.  
+Rodiće manje žita.  
 Što se više teladi zakolje,  
 Manje će mesa biti.  
 Što se više snega u planini otopi,  
