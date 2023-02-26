@@ -22,6 +22,7 @@ Za kraj, ne znam otkud to Žižeku da je Indija neutralna? Sedam meseci posle po
 Dalje:  
   
 _Kako onda da odgovorimo na nedavno obraćanje Rodžera Votersa Savetu bezbednosti Ujedinjenih nacija? Aktivista i jedan od osnivača grupe Pink Flojd tvrdi da govori u ime „četiri milijarde braće i sestara“ širom sveta. Voters priznaje da je ruski rat u Ukrajini nelegitiman i da ga treba „najoštrije“ osuditi. Ali odmah zatim dodaje: „Ruska invazija na Ukrajinu je bila izazvana i zato najoštrije osuđujem i provokatore… Poziv na hitan prekid vatre u Ukrajini danas je jedini razuman put. Da nijedan ukrajinski ili ruski život više ne bude izgubljen, nijedan, za nas su svi dragoceni. Dakle, došlo je vreme da se moćnicima kaže istina.“_   
+  
 _Da li je Votersova „istina“ zaista izraz neutralnosti? U razgovoru za Berliner Zeitung, on kaže: „Možda ne bi trebalo, ali sada sam otvoreniji da čujem šta Putin zapravo govori. Prema nezavisnim glasovima koje slušam, on vlada pažljivo donoseći odluke na osnovu konsenzusa u vladi Ruske Federacije.“_    
 _Ja sam nezavisni glas koji vrlo pomno prati ruske medije i dobro sam upoznat sa onim što Putin i njegovi propagandisti „zapravo govore“. Glavni TV kanali puni su komentatora koji preporučuju da se na zemlje poput Poljske, Nemačke ili Britanije bace atomske bombe. Čečenski zapovednik Ramzan Kadirov, jedan od Putinovih najbližih saveznika, otvoreno poziva da se „borba protiv satanizma nastavi širom Evrope i pre svega na teritoriji Poljske“._    
   
