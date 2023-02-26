@@ -3,6 +3,7 @@ layout: page
 title: Kako čitati Žižeka (za malu decu) ili "Ako vam je Žižek dobar, onda ništa"
 permalink: /zizek/
 ---
+  
 Slavoj Žižek se odrekao smisla za humor u svojoj popovskoj službi militarizmu. Ova nova faza njegovog putujućeg cirkusa mogla bi se nazvati "neo-satrapizam". U zapadnim levo-liberalnim krugovima on je avangardna sila koju države, vojni aparati i tzv. liberalni mediji promovišu u napadu na sve koji ih kritikuju.  
   
 Ne časimo časa, već čitajmo zajedno šta Žižek piše u svom novom tekstu "Mračna strana neutralnosti":
