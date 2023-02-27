@@ -25,8 +25,10 @@ On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net
 An essay on space and time in movies: [Notes on Articulation of Space and Time](https://rosedetivoli.github.io/images/spaceandtime.pdf), 2004  
   
 
-**_In Serbo-Croatian_**
-
+**_Na srpskohrvatskom_**
+  
+[Kako čitati Žižeka (za malu decu) ili "Ako vam je Žižek dobar, onda ništa"](https://www.rastko.co.uk/zizek/), feb. 2023.    
+[Samo da mira ne bude](https://www.rastko.co.uk/sdmnb/), feb. 2023.    
 Osvrt na prvu nedelju u Britaniji posle EU referenduma - [_Šta se smeškaš lutko, pakuj se!_](http://pescanik.net/sta-se-smeskas-lutko-pakuj-se/)  
 Intervju sa Višeslavom Radenkovićem za portal Before After o [video aktivizmu](http://beforeafter.rs/life/video-aktivizam/)  
 Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/) u skraćenoj verziji prenet na portalu Peščanik, objavljen u časopisu ПРИЗОР, broj 13. 2014.  
