@@ -8,7 +8,8 @@ permalink: /writing/
 
 **_In English_**
 
-_Communist Photosynthesis_, in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14), forthcoming  
+[Interview with Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/) about the military-entertainment complex for Conter  
+_Communist Photosynthesis_, in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
 [Sabzian 'Passage' on Peter Watkins' Monoform](https://sabzian.be/text/passage-rastko-novakovi%C4%87-0), February 2023  
 [Sabzian 'Prisma' #51](https://sabzian.be/prisma/prisma-51) on the use of black frames in _The Journey_ by Peter Watkins, October 2022  
 [Interview with James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
