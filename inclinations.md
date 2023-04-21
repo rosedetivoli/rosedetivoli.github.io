@@ -12,5 +12,5 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 We aim to show Scottish premieres._  
   
 8th Feb 2023 - [Just Don't Think I'll Scream](https://www.cca-glasgow.com/programme/just-dont-think-ill-scream) Scottish premiere  
-12th Apr 2023 - [Theaters of War](https://www.cca-glasgow.com/programme/theaters-of-war) UK premiere   
+12th Apr 2023 - [Theaters of War](https://www.cca-glasgow.com/programme/theaters-of-war) UK premiere, [Interview with director Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/)  
 
