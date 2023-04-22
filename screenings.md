@@ -4,6 +4,10 @@ title: Recent screenings
 permalink: /screenings/
 ---
 
+**2023** 
+  
+**Where Were You In 1992?** - screening, workshop, installation at Barbican Centre, London - July  
+
 **2022**  
 
 **Rumours of War - Where Were You In 1992?** - part of Holly Graham's 'Action' at [TACO!](https://web.archive.org/web/20221129130452/https://taco.org.uk/ACTION-SCREENINGS), London 2 Dec  
