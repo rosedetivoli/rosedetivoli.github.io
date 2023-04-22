@@ -16,7 +16,7 @@ He has contributed to the following publications: [Salvage](https://salvage.zone
   
 His work has been shown internationally at: BFI Southbank (_British Film Institute_, London), Glasgow’s _Centre for Contemporary Arts_, _Nottingham Contemporary_, _Pirate Cinema Berlin_, _Essay Film Festival_, _Focal Point Gallery_, _Kunsthalle Exnergasse - WUK_ (Vienna),  _O3one_ gallery (Belgrade). The Belgrade gallery [_U10_](http://u10.rs/2021/landscapes-with-a-guilty-conscience/) hosted a retrospective of his works in October 2021. Several of his films are held in the BFI National Archive. A list of recent screenings can be found [here](https://www.rastko.co.uk/screenings/).  
 
-He has lectured on the theory and practice of experimental film and video at the _University of Westminster_ as well as Urban Practices at _University College London_. He co-initiated the interdisciplinary exhibition Cities Methodologies (2009) which explores the intersection of academia, art and urban practices.   
+He taught a BA module on the Theory and practice of Experimental Film and Video at the _University of Westminster_, at the Urban Practices MA at _University College London_ and co-hosted a focus week at the MA in Social Design at the _University of Applied Arts, Vienna_. He co-initiated the interdisciplinary exhibition Cities Methodologies (2009) which explores the intersection of academia, art and urban practices.   
   
 As one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) he teaches queer tango.  
   
