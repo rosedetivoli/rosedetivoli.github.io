@@ -6,7 +6,8 @@ permalink: /screenings/
 
 **2023** 
   
-**Where Were You In 1992?** - screening, workshop, installation at Barbican Centre, London - July  
+**A divine comedy** - One Minute Volume 10 at Gallery Wolf & Galentz, Berlin - Aug-Oct  
+**Where Were You In 1992?** - screening and installation at Barbican Centre, London - July  
 
 **2022**  
 
