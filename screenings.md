@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Recent screenings
-permalink: /screenings/
+permalink: /screenings/ 
 ---
 
 **2023** 
