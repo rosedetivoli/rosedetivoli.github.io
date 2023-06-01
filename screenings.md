@@ -7,7 +7,7 @@ permalink: /screenings/
 **2023** 
   
 **A divine comedy** - One Minute Volume 10 at Gallery Wolf & Galentz, Berlin - Aug-Oct  
-**Where Were You In 1992?** - [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) and installation at Barbican Centre, London - July  
+**Where Were You In 1992?** - [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) and installation at Barbican Centre, London - 19th July  
 
 **2022**  
 
