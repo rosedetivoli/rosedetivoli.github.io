@@ -6,10 +6,10 @@ permalink: /screenings/
 
 **2023** 
   
-**A divine comedy** - One Minute Volume 10 at Gallery Wolf & Galentz, Berlin - Aug-Oct  
+**A divine comedy** - One Minute Volume 10 at [Gallery Wolf & Galentz](https://wolf-galentz.de/en/), Berlin - 29th Octtober  
+**Where Were You In 1992?** - [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) and [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) at Barbican Centre, London - 19th July  
 **Pelyno Marija** - [screening at Galerie Puzić](https://gallery-puzic.com/vernissage-im-osten-nichts-neues/#invitationen), Saarbrücken, Germany - July    
-**Where Were You In 1992?** - [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) and [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) at Barbican Centre, London - 19th July  
-
+  
 **2022**  
 
 **Rumours of War - Where Were You In 1992?** - part of Holly Graham's 'Action' at [TACO!](https://web.archive.org/web/20221129130452/https://taco.org.uk/ACTION-SCREENINGS), London 2 Dec  
@@ -27,8 +27,8 @@ permalink: /screenings/
 **Judy Four Times** - [Festival de Videopoesía Videobardo](https://videobardo.wixsite.com/home/programaci%C3%B3n), Buenos Aires, Argentina, 28-30th November  
 **A divine comedy** - ["One minutes"](http://oneminuteartistfilms.blogspot.com/2020/10/one-minutes-to-screen-at-contemporary.html) vol 10, Contemporary Art Ruhr, Germany, 6-7 November    
 **[Pejzaži sa nečistom savešću](http://u10.rs/2021/pejzazi-sa-necistom-savescu/) / [Landscapes with a guilty conscience](http://u10.rs/2021/landscapes-with-a-guilty-conscience/)** - U10 gallery, Belgrade, Serbia, 13-16th October  
-**Wormwood Maria** - Wolves Independent International Film Festival, Lithuania, September  
-**Wormwood Maria** - Trivium Gallery, Vilnius, Lithuania, 15th August    
+**Pelyno Marija** - Wolves Independent International Film Festival, Lithuania, September  
+**Pelyno Marija** - Trivium Gallery, Vilnius, Lithuania, 15th August    
 
 **2020**
 
