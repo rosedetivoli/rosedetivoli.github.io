@@ -6,8 +6,8 @@ permalink: /screenings/
 
 **2023** 
   
-**A divine comedy** - One Minute Volume 10 at [Gallery Wolf & Galentz](https://wolf-galentz.de/en/), Berlin - 29th Octtober  
-**Where Were You In 1992?** - [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) and [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) at Barbican Centre, London - 19th July  
+**A divine comedy** - One Minute Volume 10 at [Gallery Wolf & Galentz](https://wolf-galentz.de/en/), Berlin - 29th October  
+**Where Were You In 1992?** - [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) (throughout July) and [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) on 19th July at Barbican Centre, London  
 **Pelyno Marija** - [screening at Galerie Puzić](https://gallery-puzic.com/vernissage-im-osten-nichts-neues/#invitationen), Saarbrücken, Germany - July    
   
 **2022**  
