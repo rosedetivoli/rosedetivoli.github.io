@@ -10,7 +10,7 @@ permalink: /screenings/
 **Shall we gather at the river?** - One Minute, Volume 11 - Braziers International Film Festival, 1-3 Sep  
 **Where Were You In 1992?** - [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) (throughout July) and [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) on 19th July at Barbican Centre, London  
 **Shall we gather at the river?** - One Minute, Volume 11 - Visualcontainer.tv - July   
-**Pelyno Marija** - [screening at Galerie Puzić](https://gallery-puzic.com/vernissage-im-osten-nichts-neues/#invitationen), Saarbrücken, Germany - 9 July    
+**Pelyno Marija** - [screening at Galerie Puzić](https://gallery-puzic.com/im-osten-nichts-neues-finissage/), Saarbrücken, Germany - 9 July    
   
 **2022**  
 
