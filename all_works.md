@@ -6,7 +6,7 @@ permalink: /all_works/
 
 _The links below will take you to the project website, or streaming link._  
   
-From A Year With Thirteen Moons (with Amanda Egbe, 13.5 min, 2023)  
+Where Were You in 1992?: From A Year With Thirteen Moons (with Amanda Egbe, 13.5 min, 2023)  
 Shall we gather at the river? (1 min, 2023)   
 [Caprice](https://rosedetivoli.github.io/caprice/) (with Beatričė Bukantytė, 16.5 min, 2022)  
 [Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (63 min, 2022)    
@@ -20,7 +20,8 @@ Er saw... (2 min, 2021)
 [O my little bark...](https://vimeo.com/420233262/7d27409630) (1.5 min, 2020)  
 [JUDY FOUR TIMES](https://vimeo.com/419995325/53ce74e295) (5 min, 2020)   
 time is sweet and salty in its revolutions (1 min, 2020)  
-[Where Were You in 1992?: Svetozar in Spring](https://1992.maydayrooms.org/spring.html) (9 min, 2019)  
+[Where Were You in 1992?: Svetozar in Spring](https://1992.maydayrooms.org/spring.html) (with Amanda Egbe, 9 min, 2019)  
+[Where Were You in 1992?: Surveillance Monitoring](https://1992.maydayrooms.org/surveillance.html) (with Amanda Egbe, 9.5 mins, 2019)  
 [Where Were You in 1992?: Rumours of War](https://1992.maydayrooms.org/rumours.html) (with Amanda Egbe, 14 min, 2018)   
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)  
 [regen degen](https://regendegen.tumblr.com/) (11 video nasties co-authored with Steven Ball, 2015)  
