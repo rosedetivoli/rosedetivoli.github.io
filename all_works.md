@@ -7,7 +7,7 @@ permalink: /all_works/
 _The links below will take you to the project website, or streaming link._  
   
 Where Were You in 1992?: From A Year With Thirteen Moons (with Amanda Egbe, 13.5 min, 2023)  
-Shall we gather at the river? (1 min, 2023)   
+[Shall we gather at the river?](https://vimeo.com/830976574) (1 min, 2023)   
 [Caprice](https://rosedetivoli.github.io/caprice/) (with Beatričė Bukantytė, 16.5 min, 2022)  
 [Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (63 min, 2022)    
 [So kindly to the cold stone is the fire...](https://vimeo.com/660201404/4751f51044) (3 min, 2022)  
