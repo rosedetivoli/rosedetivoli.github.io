@@ -6,7 +6,7 @@ permalink: /all_works/
 
 _The links below will take you to the project website, or streaming link._  
 
-Song for Three Soldiers (5.3 min, 2023)    
+Song for Three Soldiers (5.5 min, 2023)    
 Where Were You in 1992?: From A Year With Thirteen Moons (with Amanda Egbe, 13.5 min, 2023)  
 [Shall we gather at the river?](https://vimeo.com/830976574) (1 min, 2023)   
 [Caprice](https://rosedetivoli.github.io/caprice/) (with Beatričė Bukantytė, 16.5 min, 2022)  
