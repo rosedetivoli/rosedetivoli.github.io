@@ -14,4 +14,4 @@ believe it or not, we used to talk of happiness and peace!_
   
 **Camera** Alex Impey  
   
-You can supoprt our work here: [buymeacoffee.com/rastko](https://www.buymeacoffee.com/rastko)  
+You can supoprt our work here: [buymeacoffee](https://www.buymeacoffee.com/rastko)  
