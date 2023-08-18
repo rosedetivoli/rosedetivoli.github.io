@@ -12,7 +12,7 @@ believe it or not, we used to talk of happiness and peace!_
 <p><a href="https://vimeo.com/855503917">Song for Three Soldiers</a> from <a href="https://vimeo.com/mosc">///</a> on <a href="https://vimeo.com">Vimeo</a>.</p>  
   
 Digital video, 2023, 5.5 mins  
-With: Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
-Camera: Alex Impey  
+**With** Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
+**Camera** Alex Impey  
   
-You can supoprt our work here [buymeacoffee.com/rastko](https://www.buymeacoffee.com/rastko)  
+You can supoprt our work here: [buymeacoffee.com/rastko](https://www.buymeacoffee.com/rastko)  
