@@ -8,8 +8,7 @@ _The sea was burning. I can still see this dream-image today, no matter how many
 believe it or not, we used to talk of happiness and peace!_
 **Cassandra**, Christa Wolf, 1983  
   
-<iframe src="https://player.vimeo.com/video/855503917" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>
-<p><a href="https://vimeo.com/855503917">Song for Three Soldiers</a> from <a href="https://vimeo.com/mosc">///</a> on <a href="https://vimeo.com">Vimeo</a>.</p>  
+<iframe src="https://player.vimeo.com/video/855503917" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>  
   
 Digital video, 2023, 5.5 mins  
 **With** Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
