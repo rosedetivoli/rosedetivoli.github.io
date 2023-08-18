@@ -10,8 +10,8 @@ believe it or not, we used to talk of happiness and peace!_
   
 <iframe src="https://player.vimeo.com/video/855503917" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>  
   
-**With** Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
+With: Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
   
-**Camera** Alex Impey  
+Camera: Alex Impey  
   
 You can supoprt our work here: [buymeacoffee](https://www.buymeacoffee.com/rastko)  
