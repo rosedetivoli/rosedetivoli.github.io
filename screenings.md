@@ -7,6 +7,7 @@ permalink: /screenings/
 **2023** 
   
 **A divine comedy** - One Minute, Volume 10 at [Gallery Wolf & Galentz](https://wolf-galentz.de/en/), Berlin - 29th October  
+**Shall we gather at the river?** - One Minute, Volume 11 - Art Station Film @ The Gannon Rooms - 29th September   
 **Shall we gather at the river?** - One Minute, Volume 11 - Braziers International Film Festival, 1-3 Sep  
 **Where Were You In 1992?** - [installation](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992) (throughout July) and [screening](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation-with-amanda-egbe) on 19th July at Barbican Centre, London  
 **Shall we gather at the river?** - One Minute, Volume 11 - Visualcontainer.tv - July   
