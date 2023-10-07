@@ -16,4 +16,6 @@ We aim to show Scottish premieres._
 14th June 2023 - [The Last City](https://www.cca-glasgow.com/programme/the-last-city) - UK premiere  
 13th September 2023 - [Before We Move](https://www.cca-glasgow.com/programme/before-we-move) - Scottish premiere  
 26th October 2023 - [A.I. at War](https://www.cca-glasgow.com/programme/a-i-at-war) - UK premiere  
+29th November 2023 - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman)  
+13th December 2023 - Those Roads of Fatsa
 
