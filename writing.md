@@ -8,7 +8,8 @@ permalink: /writing/
 
 **_In English_**
 
-[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas, as illuminated by his working papers](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - written for the _Bill Douglas Cinema Museum_, after a stipended research visit  
+[Communist Photosynthesis](https://sabzian.be/text/communist-photosynthesis), Sabzian, October 2023  
+[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas, as illuminated by his working papers](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - written for the _Bill Douglas Cinema Museum_, after a stipended research visit, published September 2023  
 [Interview with Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/) about the military-entertainment complex for Conter  
 _Communist Photosynthesis_, in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_ (eds Watts and Wickham for University of Exeter Press) for Sight and Sound, April 2023  
