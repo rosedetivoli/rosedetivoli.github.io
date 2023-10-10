@@ -41,6 +41,7 @@ Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [B
 
 **_Texts that should be available elsewhere_**
 
+Barbara Ulrich Straub [Lettre pour accompagner les projections des Straub-Huillet-films au VILNIUS DOCUMENTARY FILM FESTIVAL 2023](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
 Charles Tesson [L'heure de vérité](https://rosedetivoli.github.io/images/verite.pdf) Cahiers du Cinéma, n394, April 1987  
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
