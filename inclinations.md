@@ -4,7 +4,7 @@ title:
 permalink: /inclinations/  
 ---  
 
-![inclinations](/images/inclinations.jpg)    
+![inclinations](/images/inclin.jpg)    
 
 **INCLINATIONS** Film Club @ Glasgow CCA    
 [Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
