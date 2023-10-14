@@ -4,7 +4,7 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-<iframe src="https://player.vimeo.com/video/660201404?quality=1080p" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>   
+<iframe src="https://player.vimeo.com/video/660201404?quality=1080p" width="640" height="480" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>   
 
 [So kindly to the cold stone is the fire...](https://vimeo.com/660201404/4751f51044) (2022)  
 
