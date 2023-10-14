@@ -4,9 +4,9 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![](images/kindly.png)
+<iframe src="https://player.vimeo.com/video/660201404/4751f51044?quality=1080p" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>   
 
-(still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044))  
+So kindly to the cold stone is the fire... (2022)  
 
 _Below is a selection of films - for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/)_  
 
