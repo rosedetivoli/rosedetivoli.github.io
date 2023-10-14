@@ -13,7 +13,7 @@ permalink: /movingimage/
 [Song for Three Soldiers](https://www.rastko.co.uk/soldiers/) (2023)  
 [Caprice](https://rosedetivoli.github.io/caprice/) (2022)  
 [Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (2022)   
-[Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (2021)  
+[Pelyno Marija](https://rosedetivoli.github.io/wormwoodmaria/) (2021)  
 [O my little bark...](https://vimeo.com/420233262/7d27409630) (2020)  
 [Where Were You in 1992?](http://1992.maydayrooms.org) (2018 - ongoing)  
 [Concrete Heart Land](http://concreteheartland.info) (2014)  
