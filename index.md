@@ -4,7 +4,8 @@
 [**Buymeacoffee**](https://www.buymeacoffee.com/rastko)  
   
   
+<iframe src="https://player.vimeo.com/video/855503917?quality=1080p" width="640" height="360" frameborder="0" allow="autoplay; fullscreen; picture-in-picture" allowfullscreen></iframe>    
   
-![](images/kindly.png)
-
-(still from [_So kindly to the cold stone is the fire..._](https://vimeo.com/660201404/4751f51044))  
+Song for Three Soldiers (2023)  
+With: Kaiya Bartholomew, Pauline Goldsmith, Tom Marshallsay, Derek MCluckie  
+Camera: Alex Impey  
