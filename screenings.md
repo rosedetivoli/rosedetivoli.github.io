@@ -18,9 +18,7 @@ permalink: /screenings/
 
 **Rumours of War - Where Were You In 1992?** - part of Holly Graham's 'Action' at [TACO!](https://web.archive.org/web/20221129130452/https://taco.org.uk/ACTION-SCREENINGS), London 2 Dec  
 **Caprice** - [Scanorama Festival, Glimpses of Europe competition](https://web.archive.org/web/20221103222519/https://scanorama.lt/en/edition/2022/films/caprice?back=https%3A%2F%2Fscanorama.lt%2Fen%2Fedition%2F2022%3Ftype%3Dselection%26selection%3D273%2A), Vilnius 10-20 November  
-**_'The Journey'_ by Peter Watkins** - [screenings and discussions in Vilnius and Kaunas](https://web.archive.org/web/20220922163456/https://www.facebook.com/events/1241711636401775/1241711639735108/?active_tab=about), 6-30 October  
 **So kindly to the cold stone is the fire…** - [Deptford X Mobile Cinema](https://web.archive.org/web/20220915130926/https://deptfordx.org/event/izzy-mcevoy-and-jemma-egan-mobile-cinema/), 23-24 September  
-**_'The Journey'_ by Peter Watkins** - [screenings and discussions at Glasgow CCA](http://www.rastko.co.uk/resan/), 2-11 June    
 **Where Were You In 1992?** - [Essay Film Festival](https://web.archive.org/web/20220412181308/https://www.bbk.ac.uk/events/remote_event_view?id=29830) screening/presentation/discussion, BIMI, London, 27 May    
 **Where Were You In 1992?** - shown as part of [Amanda Egbe solo show Hide & Seek](http://web.archive.org/web/20220402184945/https://www.broadway-letchworth.com/amandaegbehideandseek) at Broadway Gallery, Letchworth, UK - 24 Mar – 8 May  
 **Judy Four Times** - [The Case of Poor Images](https://web.archive.org/web/20220412180828/https://www.kcb.org.rs/2022/04/slucaj-siromasnih-slika-grupna-medjunarodna-izlozba/), Artget gallery, Cultural Centre of Belgrade, 14 April - 19 May     
