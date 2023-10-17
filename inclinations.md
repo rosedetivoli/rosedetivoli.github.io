@@ -9,7 +9,7 @@ permalink: /inclinations/
 **INCLINATIONS** Film Club @ Glasgow CCA    
 [Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
     
-_A volunteer-run film club bringing personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films. We aim to show Scottish premieres, films which do not get airings in UK festivals or cinemas. We celebrate different perspectives in style, political standpoint and production methods._  
+_A volunteer-run film club bringing personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films. We aim to show Scottish premieres and films which do not get airings in UK festivals or cinemas. We celebrate different perspectives in style and standpoint as well as production methods._  
   
 8th Feb 2023 - [Just Don't Think I'll Scream](https://www.cca-glasgow.com/programme/just-dont-think-ill-scream) - Scottish premiere  
 12th April 2023 - [Theaters of War](https://www.cca-glasgow.com/programme/theaters-of-war) - UK premiere; [Interview with director Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/)  
