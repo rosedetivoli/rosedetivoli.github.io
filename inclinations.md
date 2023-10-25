@@ -17,5 +17,6 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 13th September 2023 - [Before We Move](https://www.cca-glasgow.com/programme/before-we-move) - Scottish premiere  
 26th October 2023 - [A.I. at War](https://www.cca-glasgow.com/programme/a-i-at-war) - UK premiere  
 29th November 2023 - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman)  
-13th December 2023 - Those Roads of Fatsa
+13th December 2023 - Those Roads of Fatsa - Scottish premiere    
+16th January 2024 - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - UK premiere  
 
