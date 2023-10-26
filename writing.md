@@ -29,7 +29,7 @@ On Belgrade street protests in 1996/1997 [The Body Electric](http://pescanik.net
 An essay on space and time in movies: [Notes on Articulation of Space and Time](https://rosedetivoli.github.io/images/spaceandtime.pdf), 2004  
   
 
-**_Na zajedničokm jeziku_**
+**_Na zajedničkom jeziku_**
   
 [Kako čitati Žižeka (za malu decu) ili "Ako vam je Žižek dobar, onda ništa"](https://www.rastko.co.uk/zizek/), feb. 2023.    
 [Samo da mira ne bude](https://www.rastko.co.uk/sdmnb/), feb. 2023.    
