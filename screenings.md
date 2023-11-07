@@ -6,6 +6,7 @@ permalink: /screenings/
 
 **2023** 
   
+**Shall we gather at the river?** - One Minute Volume 11 - Broadway Gallery, Nottingham -  20th November  
 **A divine comedy** - One Minute, Volume 10 at [Gallery Wolf & Galentz](https://wolf-galentz.de/en/), Berlin - 29th October  
 **Shall we gather at the river?** - One Minute, Volume 11 - [20-21 Visual Arts Centre, Scunthorpe](https://www.2021visualartscentre.co.uk/one-minute-films-volume-11/) @ 30th Sep to 12th Oct  
 **Shall we gather at the river?** - One Minute, Volume 11 - Art Station Film @ The Gannon Rooms - 29th September   
