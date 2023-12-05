@@ -40,6 +40,9 @@ Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko j
 O urbanističkom projektu “Beograd na vodi”, sa portala Peščanik: [_Krv nije voda_](http://pescanik.net/2014/03/krv-nije-voda/), [_Beograd na steroidima_](http://pescanik.net/2014/05/beograd-na-steroidima/)  
 Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [Bunt u Velikoj Britaniji – ovo je samo početak](http://www.pecat.co.rs/2011/01/bunt-u-v-britaniji-ovo-je-samo-pocetak/)  
 
+**_In Lithuanian_**  
+'Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas', kartu su Egidijus Mardosas, KINAS, 2023/5(374)  
+  
 **_Texts that should be available elsewhere_**
 
 Barbara Ulrich Straub [Lettre pour accompagner les projections des Straub-Huillet-films au VILNIUS DOCUMENTARY FILM FESTIVAL 2023](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
