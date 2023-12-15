@@ -4,7 +4,7 @@ title:
 permalink: /inclinations/  
 ---  
 
-![INCLINATIONS_SLIDE](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/d465d6bc-9f09-4661-b313-bb314f5c3598)  
+![inc](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/3e11c914-6a22-4189-95d9-3a7628eb1b67)
 
 **INCLINATIONS** Film Club @ Glasgow CCA    
 [Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
