@@ -8,7 +8,7 @@ permalink: /writing/
 
 **_In English_**
 
-[Review of Counter Gravity: The Films of Heinz Emigholz](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film international, Dec 2023  
+[Review of Counter Gravity: The Films of Heinz Emigholz](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
 [Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
 [Interview with Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
 [Communist Photosynthesis](https://sabzian.be/text/communist-photosynthesis), Sabzian, Oct 2023  
@@ -43,6 +43,7 @@ O urbanističkom projektu “Beograd na vodi”, sa portala Peščanik: [_Krv ni
 Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [Bunt u Velikoj Britaniji – ovo je samo početak](http://www.pecat.co.rs/2011/01/bunt-u-v-britaniji-ovo-je-samo-pocetak/)  
 
 **_Lietuviškai_**  
+  
 'Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas', kartu su Egidijus Mardosas, KINAS, 2023/5(374)  
   
 **_Texts that should be available elsewhere_**
