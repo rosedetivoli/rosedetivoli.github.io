@@ -8,11 +8,12 @@ permalink: /writing/
 
 **_In English_**
 
+[Review of Counter Gravity: The Films of Heinz Emigholz](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film international, Dec 2023  
 [Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
 [Interview with Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
 [Communist Photosynthesis](https://sabzian.be/text/communist-photosynthesis), Sabzian, Oct 2023  
-[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas, as illuminated by his working papers](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - _Bill Douglas Cinema Museum_, Sep 2023  
-[Interview with Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/) about the military-entertainment complex for Conter, Apr 2023  
+[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - _Bill Douglas Cinema Museum_, Sep 2023  
+[Interview with Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/), Conter, Apr 2023  
 _Communist Photosynthesis_, in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_, Sight and Sound, Apr 2023  
 [Sabzian 'Passage' on Peter Watkins' Monoform](https://sabzian.be/text/passage-rastko-novakovi%C4%87-0), Feb 2023  
