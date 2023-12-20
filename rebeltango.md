@@ -7,7 +7,6 @@ permalink: /rebeltango/
 
 **Queer - Feminist - Anti-capitalist**  
 Learn to dance in a safe environment  
-**Free/ Donations**  
   
 Based at Glasgow CCA - dates and info [here](https://www.cca-glasgow.com/whats-on/collection/rebel-tango)  
   
