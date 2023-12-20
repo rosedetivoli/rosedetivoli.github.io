@@ -3,6 +3,7 @@ layout: page
 title: Rebel tango
 permalink: /rebeltango/
 ---
+![rebeltango24](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/c206dc9e-7ebd-44ed-ba26-045d26b85656)
 
 **Queer - Feminist - Anti-capitalist**  
 Learn to dance in a safe environment  
