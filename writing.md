@@ -44,7 +44,7 @@ Intervju sa Marom Kern u Pečatu povodom studentskih protesta 2011. u Londonu [B
 
 **_Lietuviškai_**  
   
-'Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas', kartu su Egidijus Mardosas, KINAS, 2023/5(374)  
+[Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas](https://www.zurnalaskinas.lt/is-arciau/2023-11-01/Istorijos-pamokos), kartu su Egidijus Mardosas, KINAS, 2023/5(374)  
   
 **_Texts that should be available elsewhere_**
 
