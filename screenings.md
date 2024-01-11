@@ -4,6 +4,10 @@ title: Recent screenings
 permalink: /screenings/ 
 ---
 
+**2024**  
+  
+**Shall we gather at the river?** - One Minute Volume 11 - Directors Lounge Contemporary Art and Media @ Contemporary Art Ruhr, 15-17 March  
+
 **2023** 
 
 **Shall we gather at the river?** - One Minute Volume 11 - Chester Design Foundation - 8th December  
