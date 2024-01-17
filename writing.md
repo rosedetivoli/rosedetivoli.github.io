@@ -8,6 +8,7 @@ permalink: /writing/
 
 **_In English_**
 
+[Interview with Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
 [Review of Counter Gravity: The Films of Heinz Emigholz](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
 [Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
 [Interview with Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
