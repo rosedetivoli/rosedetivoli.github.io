@@ -1,6 +1,6 @@
 ---
 layout: page
-title: On Nationalism
+title: On Nationalism - Danilo Kiš
 permalink: /kis/
 ---
 
