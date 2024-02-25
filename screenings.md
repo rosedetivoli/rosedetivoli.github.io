@@ -7,7 +7,7 @@ permalink: /screenings/
 **2024**  
 
 **Shall we gather at the river?** - One Minute Volume 11 - Directors Lounge Contemporary Art and Media @ Contemporary Art Ruhr, 15-17 March  
-**Caprice** & **Pelyno Marija** - The Aesthetica Art Prize 2024 (Longlisted), York Art Gallery - 16 Feb - 21 Apr  
+**Pelyno Marija** - [The Aesthetica Art Prize 2024 - Longlisted](https://artprize.aestheticamagazine.com/projects/beatrice-bukantyte-rastko-novakovic/), York Art Gallery - 16 Feb - 21 Apr  
   
 **2023** 
 
