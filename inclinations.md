@@ -19,4 +19,7 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 29th November 2023 - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman) - James Kelman [conversation](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023)    
 13th December 2023 - [Those Roads of Fatsa](https://www.cca-glasgow.com/programme/those-roads-of-fatsa) - UK premiere - Nurşen Bakır [interview](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), [conversation](https://archive.org/details/nursen-bakir-13-12-2023)     
 16th January 2024 - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - UK premiere  
-
+13th February 2024 - [What About China?](https://www.cca-glasgow.com/programme/what-about-china) - Scottish premiere  
+19th March 2024 - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - Scottish premiere  
+23rd April 2024 - [Goodbye and hello! Godard & Straub](https://www.cca-glasgow.com/programme/goodbye-and-hello-godard-straub) - Scottish premiere  
+21st May 2024 - [North By Current](http://www.northbycurrent.com/) - Scottish premiere  
