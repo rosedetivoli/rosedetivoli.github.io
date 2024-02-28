@@ -23,7 +23,7 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
   
 **2024**  
   
-16 Jan - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - UK premiere  
+16 Jan - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - UK premiere - Talia Lugacy [interview](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/)  
 13 Feb - [What About China?](https://www.cca-glasgow.com/programme/what-about-china) - Scottish premiere  
 19 Mar - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - Scottish premiere  
 23 Apr - [Goodbye and hello! Godard & Straub](https://www.cca-glasgow.com/programme/goodbye-and-hello-godard-straub) - Scottish premiere  
