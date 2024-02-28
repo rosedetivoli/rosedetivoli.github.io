@@ -4,7 +4,7 @@ title: curriculum vitae
 permalink: /cv/
 ---
 
-Rastko Novaković (b. 1981, Belgrade, Yugoslavia) makes films, writes, and curates.  
+Rastko Novaković (b. 1981, Belgrade, Yugoslavia) makes films, writes and curates.  
 
 Over the years he has co/authored over 60 moving image [works](https://www.rastko.co.uk/all_works/), ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. He has exhibited sound works, outdoor installations, as well as a 15 meter long site-specific panorama.  
 
