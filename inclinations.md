@@ -27,4 +27,4 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 13 Feb - [What About China?](https://www.cca-glasgow.com/programme/what-about-china) - Scottish premiere  
 19 Mar - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - Scottish premiere  
 23 Apr - [Goodbye and hello! Godard & Straub](https://www.cca-glasgow.com/programme/goodbye-and-hello-godard-straub) - Scottish premiere  
-21 May - [North By Current](http://www.northbycurrent.com/) - Scottish premiere  
+21 May - [North By Current](https://www.cca-glasgow.com/programme/north-by-current) - Scottish premiere  
