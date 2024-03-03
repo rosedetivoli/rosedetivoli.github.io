@@ -7,7 +7,7 @@ permalink: /all_works/
 _The links below will take you to the project website, or streaming link._  
 
 [Song for Three Soldiers](https://www.rastko.co.uk/soldiers/) (5.5 min, 2023)    
-Where Were You in 1992?: From A Year With Thirteen Moons (with Amanda Egbe, 13.5 min, 2023)  
+[Where Were You in 1992?: From A Year With Thirteen Moons](https://www.barbican.org.uk/whats-on/2023/event/where-were-you-in-1992-conversation) (with Amanda Egbe, 13.5 min, 2023)  
 [Shall we gather at the river?](https://vimeo.com/830976574) (1 min, 2023)   
 [Caprice](https://rosedetivoli.github.io/caprice/) (with Beatričė Bukantytė, 16.5 min, 2022)  
 [Zephyr, deb](https://rosedetivoli.github.io/zephyr/) (63 min, 2022)    
