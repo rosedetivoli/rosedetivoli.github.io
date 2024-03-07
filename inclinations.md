@@ -28,3 +28,8 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 19 Mar - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - Scottish premiere  
 23 Apr - [Goodbye and hello! Godard & Straub](https://www.cca-glasgow.com/programme/goodbye-and-hello-godard-straub) - Scottish premiere  
 21 May - [North By Current](https://www.cca-glasgow.com/programme/north-by-current) - Scottish premiere  
+11 Jun - [Solitude](https://ninadanino.co.uk/solitude/) + [Maria](https://ninadanino.co.uk/maria/) - Nina Danino double bill - Scottish premiere  
+10 Sep - [Antuca](https://www.tabakalera.eus/en/antuca-maria-barea-talk/) - Scottish premiere  
+15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Scottish premiere  
+12 Nov - tbc  
+10 Dec - [The Last Days of Humanity](https://matango.tv/the-last-days-of-humanity-enrico-ghezzi-alessandro-gagliardo/) - Scottish premiere     
