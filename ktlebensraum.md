@@ -4,8 +4,8 @@ title: kentish town lebensraum
 permalink: /ktlebensraum/
 ---
 
-<iframe src="https://player.vimeo.com/video/119961768" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> 
-
+<iframe src="https://player.vimeo.com/video/119961768?h=55cd68f155" width="640" height="480" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe> 
+  
 A video from the performance as it happened on Sunday, 18th January 2009  
 
 Images from the day:
