@@ -1,4 +1,8 @@
-
+---
+layout: page
+title: Festival of Rejects, Glasgow 2024
+permalink: /rejects2024/
+---
 
 
 ![soldiers_grey](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a)
