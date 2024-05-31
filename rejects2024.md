@@ -5,9 +5,9 @@ permalink: /rejects2024/
 ---
 
 
-![soldiers_grey](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a)
+![soldiers_grey](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a | width=500) 
 
-![zephyr_grey](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/8beae952-4e94-4311-abda-09451518336c)
+![zephyr_grey](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/8beae952-4e94-4311-abda-09451518336c | width=500)
 
 ![Aerial map of the Revelator 2](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/e4af673c-e3a4-46e0-a796-e335a8a0f2f6)
 
