@@ -5,8 +5,7 @@ permalink: /rejects2024/
 ---
 
 
-<img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a" width="350" height="496">   
-<img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/8beae952-4e94-4311-abda-09451518336c =250x250" width="350" height="496">  
+<img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a" width="350" height="496"> <img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/8beae952-4e94-4311-abda-09451518336c width="350" height="496">  
 
 7.30pm on June 14th at The Revelator  
 Double bill, performance, Q&A   
