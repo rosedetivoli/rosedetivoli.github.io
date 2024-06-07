@@ -16,7 +16,7 @@ Heroic and humdrum, **Zephyr, deb** (63 min, 2022) is a woman’s life told in n
   
 Preceded by **Song For Three Soldiers** (5 min, 2023) - an anti-war poem perfomed along the banks of the Clyde. 
 
-[Full Festival programme lsiting](https://www.instagram.com/p/C7UjvU8IK3z)  
+[Full Festival programme](https://www.instagram.com/p/C7UjvU8IK3z)  
   
 ![Aerial map of the Revelator 2](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/e4af673c-e3a4-46e0-a796-e335a8a0f2f6)
 
