@@ -4,8 +4,7 @@ title: Festival of Rejects, Glasgow 2024
 permalink: /rejects2024/
 ---
 
-
-<img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/a2a85128-57ac-42cc-9366-892f0ab7b63a" width="350" height="496"> <img src="https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/8beae952-4e94-4311-abda-09451518336c" width="350" height="496">  
+![rejects_booklet_out_small](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/c15fd14a-9e09-4d94-84b4-20255716cb16)  
   
 Double bill of films, performance, Q&A, tea and biscuits     
 at The Revelator, 739 South Street, G14 0BX  
