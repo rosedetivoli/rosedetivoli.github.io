@@ -6,6 +6,8 @@ permalink: /screenings/
 
 **2024**  
 
+**fifty shades of nato** - One Minute Volume 12 - Visualcontainer(.Box) - Milan - 12-26 Sep  
+**fifty shades of nato** - One Minute Volume 12 - Close Up Film Centre - London - 8 Aug  
 **fifty shades of nato** - One Minute Volume 12 - [The StoryHouse](https://www.storyhouse.com/whats-on/one-minute/) - Chester - Jul 6  
 [**Zephyr, deb** & **Song for Three Soldiers**](https://www.rastko.co.uk/rejects2024/) - [Festival of Rejects at The Revelator](https://www.instagram.com/p/C7UjvU8IK3z) - Glasgow - 14 Jun  
 **Shall we gather at the river?** - One Minute Volume 11 - Directors Lounge Contemporary Art and Media @ Contemporary Art Ruhr, 15-17 March  
