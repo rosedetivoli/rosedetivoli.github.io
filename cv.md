@@ -4,11 +4,11 @@ title: Bio
 permalink: /cv/
 ---
 
-Rastko Novaković (b. 1981, Belgrade, Yugoslavia) makes films, writes and curates.  
+Rastko Novaković (b. 1981, Belgrade, Yugoslavia) makes films, writes, curates and dances tango.  
 
-Over the years he has co/authored over 60 moving image [works](https://www.rastko.co.uk/all_works/), ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. He has exhibited sound works, outdoor installations, as well as a 15 meter long site-specific panorama.  
+He has co/authored over 60 moving image [works](https://www.rastko.co.uk/all_works/), ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. He has exhibited sound works, outdoor installations, as well as a 15 meter long site-specific panorama.  
   
-Over the years, Rastko has worked on video activist and DIY media projects with a feminist antimilitarist group ([Women in Black](http://zeneucrnom.org/index.php?lang=en), Serbia), a climate justice group (Climate Camp, UK) and [London Indymedia](https://imc.maydayrooms.org/). He is currently coordinator of the [Activist Media Project](https://amp.0x2620.org/) based at [MayDay Rooms](https://maydayrooms.org/).  
+Over the years, he has worked on video activist and DIY media projects with a feminist antimilitarist group ([Women in Black](http://zeneucrnom.org/index.php?lang=en), Serbia), a climate justice group (Climate Camp, UK) and [London Indymedia](https://imc.maydayrooms.org/). He is currently coordinator of the [Activist Media Project](https://amp.0x2620.org/) based at [MayDay Rooms](https://maydayrooms.org/).  
 
 He has contributed to the following publications: [Salvage](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/), [Sabzian](https://sabzian.be/authors/rastko-novakovic), [Sight and Sound](https://www.bfi.org.uk/sight-and-sound), [The White Review](https://www.thewhitereview.org/), [Conter](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/), [Film International](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), [Peščanik](https://pescanik.net/author/rastko-novakovic/). He is also a contributor to the books [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (eds. Duijzings/Campkin, I.B. Tauris, 2016) and [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14) (eds. Brady/Hughes, Legenda, 2023).  
   
