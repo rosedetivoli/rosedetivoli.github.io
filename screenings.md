@@ -7,7 +7,7 @@ permalink: /screenings/
 **2024**  
 
 **fifty shades of nato** - One Minute Volume 12 - Visualcontainer(.Box) - Milan - 12-26 Sep  
-**fifty shades of nato** - One Minute Volume 12 - The Cube - Bristol - 4 Sep  
+**fifty shades of nato** - One Minute Volume 12 - [The Cube](https://cubecinema.com/programme/event/kerry-baldry-one-minute-volume-12,14031/) - Bristol - 4 Sep  
 **fifty shades of nato** - One Minute Volume 12 - Close Up Film Centre - London - 8 Aug  
 **fifty shades of nato** - One Minute Volume 12 - [The StoryHouse](https://www.storyhouse.com/whats-on/one-minute/) - Chester - Jul 6  
 [**Zephyr, deb** & **Song for Three Soldiers**](https://www.rastko.co.uk/rejects2024/) - [Festival of Rejects](https://www.instagram.com/p/C7UjvU8IK3z) - Glasgow - 14 Jun  
