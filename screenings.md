@@ -6,6 +6,7 @@ permalink: /screenings/
 
 **2024**  
 
+**Shall we gather at the river?** - One Minute Volume 11 - [Close Up Film Centre](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-11/) - London - 26 Sep  
 **fifty shades of nato** - One Minute Volume 12 - Visualcontainer(.Box) - Milan - 12-26 Sep  
 **fifty shades of nato** - One Minute Volume 12 - [The Cube](https://cubecinema.com/programme/event/kerry-baldry-one-minute-volume-12,14031/) - Bristol - 4 Sep  
 **fifty shades of nato** - One Minute Volume 12 - Close Up Film Centre - London - 8 Aug  
