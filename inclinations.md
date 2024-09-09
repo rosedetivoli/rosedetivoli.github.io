@@ -31,5 +31,10 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 11 Jun - [Solitude + Maria](https://www.cca-glasgow.com/programme/solitude-maria) - Nina Danino double bill - Scottish premiere  
 10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - Scottish premiere  
 15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Scottish premiere  
-12 Nov - tbc  
-10 Dec - [The Last Days of Humanity](https://matango.tv/the-last-days-of-humanity-enrico-ghezzi-alessandro-gagliardo/) - UK premiere     
+12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](x)  
+10 Dec - TBC     
+
+**2025**  
+
+14 Jan - VJ Gombro MUSIC VIDEOS of 2024  
+4 Feb - [The Last Days of Humanity](https://matango.tv/the-last-days-of-humanity-enrico-ghezzi-alessandro-gagliardo/) - UK premiere  
