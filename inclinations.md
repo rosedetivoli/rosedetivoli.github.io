@@ -31,7 +31,7 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 11 Jun - [Solitude + Maria](https://www.cca-glasgow.com/programme/solitude-maria) - Nina Danino double bill - Scottish premiere  
 10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - Scottish premiere  
 15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Scottish premiere  
-12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](x)  
+12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](https://www.cca-glasgow.com/programme/cornelia-geiser-double-bill-partial-wave-child)  
 10 Dec - TBC     
 
 **2025**  
