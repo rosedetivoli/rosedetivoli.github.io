@@ -8,11 +8,13 @@ permalink: /rebeltango/
 **Queer - Feminist - Anti-capitalist**  
 Learn to dance in a safe environment  
   
-Based at Glasgow CCA - dates and info [here](https://www.cca-glasgow.com/whats-on/collection/rebel-tango)  
-  
+Based in Glasgow and moving between venues in the centre of town, we hold regular tester sessions and classes for beginners.  
+
 Get in touch at: queertango [at] aktivix.org  
+Follow us here: [Twitter](https://twitter.com/rebel_tango), [Instagram](https://www.instagram.com/rebeltangoglasgow/)  
   
-Follow us here: [@rebeltango](https://twitter.com/rebel_tango)  
-  
-[Interview in THE SKINNY Magazine](https://www.theskinny.co.uk/intersections/interviews/partner-up)   
+IN THE PRESS:    
+[Interview in THE SKINNY Magazine](https://www.theskinny.co.uk/intersections/interviews/partner-up)  
+[A review of one of the taster classes](https://glasgowuniversitymagazine.co.uk/articles/culture-2/the-art-of-loving-through-rebel-tango/)  
+
 
