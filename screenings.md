@@ -6,10 +6,11 @@ permalink: /screenings/
 
 **2024**  
 
-**Shall we gather at the river?** - One Minute Volume 11 - [Close Up Film Centre](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-11/) - London - 26 Sep  
+**A divine comedy** - One Minute Volume 10 - [Close Up](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-ten) - London - 31 Oct  
+**Shall we gather at the river?** - One Minute Volume 11 - [Close Up](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-11/) - London - 26 Sep  
 **fifty shades of nato** - One Minute Volume 12 - Visualcontainer(.Box) - Milan - 12-26 Sep  
 **fifty shades of nato** - One Minute Volume 12 - [The Cube](https://cubecinema.com/programme/event/kerry-baldry-one-minute-volume-12,14031/) - Bristol - 4 Sep  
-**fifty shades of nato** - One Minute Volume 12 - Close Up Film Centre - London - 8 Aug  
+**fifty shades of nato** - One Minute Volume 12 - [Close Up](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-12/) - London - 8 Aug  
 **fifty shades of nato** - One Minute Volume 12 - [The StoryHouse](https://www.storyhouse.com/whats-on/one-minute/) - Chester - Jul 6  
 [**Zephyr, deb** & **Song for Three Soldiers**](https://www.rastko.co.uk/rejects2024/) - [Festival of Rejects](https://www.instagram.com/p/C7UjvU8IK3z) - Glasgow - 14 Jun  
 **Shall we gather at the river?** - One Minute Volume 11 - Directors Lounge @ Contemporary Art Ruhr, 15-17 March  
