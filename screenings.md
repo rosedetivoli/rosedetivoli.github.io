@@ -5,7 +5,8 @@ permalink: /screenings/
 ---
 
 **2024**  
-
+  
+**fifty shades of nato** - One Minute Volume 12 - The Auxiliary, Middlesbrough, 7-11 Nov  
 **A divine comedy** - One Minute Volume 10 - [Close Up](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-ten) - London - 31 Oct  
 **Shall we gather at the river?** - One Minute Volume 11 - [Close Up](https://www.closeupfilmcentre.com/film_programmes/2024/one-minute-volume-11/) - London - 26 Sep  
 **fifty shades of nato** - One Minute Volume 12 - Visualcontainer(.Box) - Milan - 12-26 Sep  
