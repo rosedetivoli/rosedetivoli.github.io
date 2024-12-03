@@ -7,10 +7,11 @@ permalink: /writing/
 ![flu](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/2dc8f195-d495-4da6-873a-a32a5285500d)
 
 **_In English_**
-
-Review of _MY CINEMA by Marguerite Duras_, Sight and Sound, March 2024  
+  
+[Review of _SweetBitter_ by Nat Walpole](https://snackmag.co.uk/sweetbitter-review), Snackmag, Nov 2024    
+Review of _My Cinema by Marguerite Duras_, Sight and Sound, March 2024  
 [Interview with Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
-[Review of Counter Gravity: The Films of Heinz Emigholz](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
+[Review of _Counter Gravity: The Films of Heinz Emigholz_](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
 [Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
 [Interview with Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
 [Communist Photosynthesis](https://sabzian.be/text/communist-photosynthesis), Sabzian, Oct 2023  
