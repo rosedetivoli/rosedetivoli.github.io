@@ -7,7 +7,8 @@ permalink: /writing/
 ![flu](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/2dc8f195-d495-4da6-873a-a32a5285500d)
 
 **_In English_**
-  
+
+CineMasters: Bill Douglas, season at Glasgow Film Theatre, [programme notes](https://letterboxd.com/glasgowfilm/story/cinemasters-bill-douglas/), Dec 2024  
 [Review of _SweetBitter_ by Nat Walpole](https://snackmag.co.uk/sweetbitter-review), Snackmag, Nov 2024    
 Review of _My Cinema by Marguerite Duras_, Sight and Sound, March 2024  
 [Interview with Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
