@@ -13,28 +13,28 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 
 **2023**  
   
-8 Feb - [Just Don't Think I'll Scream](https://www.cca-glasgow.com/programme/just-dont-think-ill-scream) - Scottish premiere  
-12 Apr - [Theaters of War](https://www.cca-glasgow.com/programme/theaters-of-war) - UK premiere - Roger Stahl [interview](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/) - [panel discussion](https://archive.org/details/theaters-of-war-inclinations-film-club-panel-12-april-2023)    
-14 Jun - [The Last City](https://www.cca-glasgow.com/programme/the-last-city) - UK premiere - Heinz Emigholz [interview](https://www.sabzian.be/text/sculptures-in-time)  
-13 Sep - [Before We Move](https://www.cca-glasgow.com/programme/before-we-move) - Scottish premiere  
-26 Oct - [A.I. at War](https://www.cca-glasgow.com/programme/a-i-at-war) - UK premiere  
-29 Nov - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman) - James Kelman [conversation](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023)    
-13 Dec - [Those Roads of Fatsa](https://www.cca-glasgow.com/programme/those-roads-of-fatsa) - UK premiere - Nurşen Bakır [interview](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), [conversation](https://archive.org/details/nursen-bakir-13-12-2023)     
+8 Feb - [Just Don't Think I'll Scream](https://www.cca-glasgow.com/programme/just-dont-think-ill-scream) - Frank Beauvais - Scottish premiere  
+12 Apr - [Theaters of War](https://www.cca-glasgow.com/programme/theaters-of-war) - Roger Stahl [interview](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/) - [panel discussion](https://archive.org/details/theaters-of-war-inclinations-film-club-panel-12-april-2023) - UK premiere    
+14 Jun - [The Last City](https://www.cca-glasgow.com/programme/the-last-city) - Heinz Emigholz [interview](https://www.sabzian.be/text/sculptures-in-time) - UK premiere  
+13 Sep - [Before We Move](https://www.cca-glasgow.com/programme/before-we-move) - Aleksandr M. Vinogradov - Scottish premiere  
+26 Oct - [A.I. at War](https://www.cca-glasgow.com/programme/a-i-at-war) - Florent Marcie - UK premiere  
+29 Nov - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman) - Alain Cavalier & James Kelman [conversation](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023) - UK premiere    
+13 Dec - [Those Roads of Fatsa](https://www.cca-glasgow.com/programme/those-roads-of-fatsa) - Nurşen Bakır [interview](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), [conversation](https://archive.org/details/nursen-bakir-13-12-2023) - UK premiere        
   
 **2024**  
   
-16 Jan - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - UK premiere - Talia Lugacy [interview](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/)  
-13 Feb - [What About China?](https://www.cca-glasgow.com/programme/what-about-china) - Scottish premiere  
-19 Mar - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - Scottish premiere  
+16 Jan - [This Is Not A War Story](https://www.cca-glasgow.com/programme/this-is-not-a-war-story) - Talia Lugacy [interview](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/) - UK premiere    
+13 Feb - [What About China?](https://www.cca-glasgow.com/programme/what-about-china) - Trinh T. Minh-ha - Scottish premiere  
+19 Mar - [Her Socialist Smile](https://www.cca-glasgow.com/programme/her-socialist-smile) - John Gianvito - Scottish premiere  
 19 Apr - [Goodbye and hello! Godard & Straub](https://www.cca-glasgow.com/programme/goodbye-and-hello-godard-straub) - UK premieres  
-21 May - [North By Current](https://www.cca-glasgow.com/programme/north-by-current) - Scottish premiere  
+21 May - [North By Current](https://www.cca-glasgow.com/programme/north-by-current) - Angelo Madsen Minax - Scottish premiere  
 11 Jun - [Solitude + Maria](https://www.cca-glasgow.com/programme/solitude-maria) - Nina Danino double bill - Scottish premiere  
-10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - Scottish premiere  
-15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Scottish premiere  
+10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - María Barea - Scottish premiere  
+15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Maiko Endo - Scottish premiere  
 12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](https://www.cca-glasgow.com/programme/cornelia-geiser-double-bill-partial-wave-child) - UK premiere    
   
 **2025**  
 
-9 Jan - [The Last Days of Humanity](https://www.cca-glasgow.com/programme/change-of-venue-the-last-days-of-humanity) - UK premiere  
-13 Feb - [Fairytale](https://www.cca-glasgow.com/programme/change-of-venue-fairytale) - Scottish premiere  
-13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Glasgow premiere    
+9 Jan - [The Last Days of Humanity](https://www.cca-glasgow.com/programme/change-of-venue-the-last-days-of-humanity) - Enrico Ghezzi & Alessandro Gagliardo - UK premiere  
+13 Feb - [Fairytale](https://www.cca-glasgow.com/programme/change-of-venue-fairytale) - Aleksandr Sokurov - Scottish premiere  
+13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Nariman Massoumi & Ebrahim Golestan - Glasgow premiere    
