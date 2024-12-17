@@ -31,9 +31,10 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 11 Jun - [Solitude + Maria](https://www.cca-glasgow.com/programme/solitude-maria) - Nina Danino double bill - Scottish premiere  
 10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - Scottish premiere  
 15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Scottish premiere  
-12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](https://www.cca-glasgow.com/programme/cornelia-geiser-double-bill-partial-wave-child)  
+12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](https://www.cca-glasgow.com/programme/cornelia-geiser-double-bill-partial-wave-child) - UK premiere    
   
 **2025**  
 
-Jan - VJ Gombro MUSIC VIDEOS of 2024  
-Feb - [The Last Days of Humanity](https://matango.tv/the-last-days-of-humanity-enrico-ghezzi-alessandro-gagliardo/) - UK premiere  
+9 Jan - [The Last Days of Humanity](https://www.cca-glasgow.com/programme/change-of-venue-the-last-days-of-humanity) - UK premiere  
+13 Feb - [Fairytale](https://www.cca-glasgow.com/programme/change-of-venue-fairytale) - Scottish premiere  
+13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Glasgow premiere    
