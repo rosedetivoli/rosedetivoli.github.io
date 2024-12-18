@@ -18,7 +18,7 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 14 Jun - [The Last City](https://www.cca-glasgow.com/programme/the-last-city) - Heinz Emigholz [interview](https://www.sabzian.be/text/sculptures-in-time) - UK premiere  
 13 Sep - [Before We Move](https://www.cca-glasgow.com/programme/before-we-move) - Aleksandr M. Vinogradov - Scottish premiere  
 26 Oct - [A.I. at War](https://www.cca-glasgow.com/programme/a-i-at-war) - Florent Marcie - UK premiere  
-29 Nov - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman) - Alain Cavalier & James Kelman [conversation](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023) - UK premiere    
+29 Nov - [Libera Me & Seven Stories by James Kelman](https://www.cca-glasgow.com/programme/libera-me-seven-stories-by-james-kelman) - Alain Cavalier [interview](https://sabzian.be/text/11-questions-for-alain-cavalier) & James Kelman [conversation](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023) - UK premiere    
 13 Dec - [Those Roads of Fatsa](https://www.cca-glasgow.com/programme/those-roads-of-fatsa) - Nurşen Bakır [interview](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), [conversation](https://archive.org/details/nursen-bakir-13-12-2023) - UK premiere        
   
 **2024**  
