@@ -10,8 +10,8 @@ permalink: /writing/
 
 CineMasters: Bill Douglas, season at Glasgow Film Theatre, [programme notes](https://letterboxd.com/glasgowfilm/story/cinemasters-bill-douglas/), Dec 2024  
 [Review of _SweetBitter_ by Nat Walpole](https://snackmag.co.uk/sweetbitter-review), Snackmag, Nov 2024    
-[11 Questions for Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, October 2024  
-Review of _My Cinema by Marguerite Duras_, Sight and Sound, March 2024  
+[11 Questions for Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, Oct 2024  
+Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024  
 [Interview with Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
 [Review of _Counter Gravity: The Films of Heinz Emigholz_](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
 [Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
