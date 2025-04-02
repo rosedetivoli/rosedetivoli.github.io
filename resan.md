@@ -13,7 +13,7 @@ _“This film is about systems: the systems under which we all live, and the mec
 Peter Watkins  
 
 _“The threat of nuclear war is the ultimate oppression, the terrifying expression of the struggle for power of male-dominated institutions.”_  
-Jeanette Buiski  
+Jeanette Buirski  
 
 Shot at the height of the 1980s nuclear arms race, The Journey is a documentary which tries to imagine what global peace could look like. What if communication, learning and empathy were at the heart of our world, instead of fear, distrust and enemy images. Through discussions with families and communities, the film confronts the military-industrial complex, mass audio-visual media and governments which all impose unaccountable decisions on citizens and populations. Deeply personal, contemplative, meticulously researched and passionate, The Journey is a collective expression of our struggle for peace. It inspires action and offers many solutions to the obstacles we face.  
 
