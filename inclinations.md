@@ -40,4 +40,4 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 20 Feb - [The Spies Who Ruined Our Lives](https://womenslibrary.org.uk/event/the-women-who-uncovered-the-spy-cops-scandal/#tribe-tickets__tickets-form)  - Scottish premiere, as part of 'The Women Who Uncovered the Spycops Scandal' event at Glasgow Women's Library    
 13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Nariman Massoumi & Ebrahim Golestan - Glasgow premiere    
 8 Apr - [Fragments, wholes and One Minutes](https://www.cca-glasgow.com/programme/fragments-wholes-and-one-minutes) mix of Scottish and UK premieres   
-18 May - The Empire - Bruno Dumont - Scottish premiere  
+18 May - [The Empire](https://www.glasgowfilm.org/movie/the-empire/) - Bruno Dumont - Scottish premiere  
