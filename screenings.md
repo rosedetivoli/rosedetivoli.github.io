@@ -6,6 +6,8 @@ permalink: /screenings/
 
 **2025**  
 
+**fifty shades of nato** - One Minutes, Vol 12, LÁ Art Museum, Iceland 1 Jun - 19 Jul   
+**Concrete Heart Land** - [COMMUNITY ECOSYSTEMS Workshop](https://taco.org.uk/Community-Ecosystems-Walk-and-Readings) at TACO!, London, 24 May  
 **fifty shades of nato** - One Minutes, Vol 12, Contemporary Art Ruhr, Germany, 21-23 Mar  
   
 **2024**  
