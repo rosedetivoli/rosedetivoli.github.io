@@ -30,7 +30,7 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 21 May - [North By Current](https://www.cca-glasgow.com/programme/north-by-current) - Angelo Madsen Minax - Scottish premiere  
 11 Jun - [Solitude + Maria](https://www.cca-glasgow.com/programme/solitude-maria) - Nina Danino double bill - Scottish premiere  
 10 Sep - [Antuca](https://www.cca-glasgow.com/programme/antuca) - María Barea - Scottish premiere  
-15 Oct - [Kuichisan](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Maiko Endo - Scottish premiere  
+15 Oct - [Kuichisan (35mm)](https://www.cca-glasgow.com/programme/kuichisan-35mm) - Maiko Endo - Scottish premiere  
 12 Nov - [Cornelia Geiser double bill + PARTIAL WAVE CHILD](https://www.cca-glasgow.com/programme/cornelia-geiser-double-bill-partial-wave-child) - UK premiere    
   
 **2025**  
@@ -41,3 +41,4 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Nariman Massoumi & Ebrahim Golestan - Glasgow premiere    
 8 Apr - [Fragments, wholes and One Minutes](https://www.cca-glasgow.com/programme/fragments-wholes-and-one-minutes) mix of Scottish and UK premieres   
 18 May - [The Empire](https://www.glasgowfilm.org/movie/the-empire/) - Bruno Dumont - Scottish premiere  
+19 Jun - [Rosetta (35mm)](https://www.cca-glasgow.com/programme/rosetta-35mm) - Dardnenne brotheres   
