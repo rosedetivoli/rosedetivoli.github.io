@@ -42,3 +42,4 @@ _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, qu
 8 Apr - [Fragments, wholes and One Minutes](https://www.cca-glasgow.com/programme/fragments-wholes-and-one-minutes) mix of Scottish and UK premieres   
 18 May - [The Empire](https://www.glasgowfilm.org/movie/the-empire/) - Bruno Dumont - Scottish premiere  
 19 Jun - [Rosetta (35mm)](https://www.cca-glasgow.com/programme/rosetta-35mm) - Dardnenne brotheres   
+29 Jun - [To Kill A War Machine](https://web.archive.org/web/20250705232454/https://www.eventbrite.co.uk/e/to-kill-a-war-machine-inclinations-film-club-x-gmac-tickets-1437420586669) - Rainbow Collective - Scottish premiere  
