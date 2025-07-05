@@ -8,6 +8,7 @@ permalink: /writing/
 
 **_In English_**
 
+_Our Figures On Communist Grounds_ in the book [Post-Communist Grounds. In Search of the Commons](https://networkcultures.org/blog/publication/out-now-post-communist-grounds-in-search-of-the-commons/), July 2025   
 CineMasters: Bill Douglas, season at Glasgow Film Theatre, [programme notes](https://letterboxd.com/glasgowfilm/story/cinemasters-bill-douglas/), Dec 2024  
 [Review of _SweetBitter_ by Nat Walpole](https://snackmag.co.uk/sweetbitter-review), Snackmag, Nov 2024    
 [11 Questions for Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, Oct 2024  
