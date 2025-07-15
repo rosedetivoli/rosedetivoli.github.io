@@ -6,6 +6,7 @@ permalink: /screenings/
 
 **2025**  
 
+**[REMIX 2025: A One-Day Symposium on Race, Representation, and Archival Practice](https://www.remixthearchive.org/)** - The Watershed, Bristol - 22 Jul    
 **fifty shades of nato** - One Minutes, Vol 12, LÁ Art Museum, Iceland 1 Jun - 19 Jul   
 **fifty shades of nato** - One Minutes, Vol 12, Contemporary Art Ruhr, Germany, 21-23 Mar  
   
