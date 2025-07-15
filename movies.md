@@ -3,7 +3,8 @@ layout: page
 title: Moving image
 permalink: /movingimage/
 ---
-![roastbeef_still](https://github.com/user-attachments/assets/32d504ae-053b-48f4-8ff5-a8abc02d374f)
+
+![mine](https://github.com/user-attachments/assets/e276cb3a-4fb8-451e-93e0-3dd51c54420c)
 Still from [ROASTBEEF](https://www.rastko.co.uk/roastbeef/) (in post-production)  
 
 **Below is a selection, for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).**  
