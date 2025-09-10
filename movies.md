@@ -4,8 +4,9 @@ title: Moving image
 permalink: /movingimage/
 ---
 
-![mine](https://github.com/user-attachments/assets/e276cb3a-4fb8-451e-93e0-3dd51c54420c)
-Still from [ROASTBEEF](https://www.rastko.co.uk/roastbeef/) (in post-production)  
+<img width="1440" height="1080" alt="vlcsnap-2025-07-18-17h43m43s288" src="https://github.com/user-attachments/assets/0ff12ee3-abf0-4850-987d-b127af9b9972" />
+
+Still from [Roastbeef](https://www.rastko.co.uk/roastbeef/) (in post-production)  
 
 **Below is a selection, for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).**  
   
