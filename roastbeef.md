@@ -3,7 +3,8 @@ layout: page
 title: Roastbeef
 permalink: /roastbeef/
 ---
-![roastbeef1](https://github.com/user-attachments/assets/94521fd1-bef9-4f68-817c-97fe0f5935e2)  
+
+<img width="1440" height="1080" alt="vlcsnap-2025-07-18-17h43m43s288" src="https://github.com/user-attachments/assets/fc822fae-3d10-46e1-8b32-002fe27066de" />
 
 In a domestic arena, a woman speaks the words written by Gertrude Stein in 1914: _'A sentence of a vagueness that is violence is authority and a mission and stumbling and also certainly also a prison.'_ She struggles through words and language, with food and pleasure, regret, misunderstandings, grasping at many things that were lost and out of reach.  
     
