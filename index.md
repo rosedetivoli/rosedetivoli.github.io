@@ -1,5 +1,5 @@
   
-[**BIO**](https://www.rastko.co.uk/cv/) - [**SCREENINGS**](https://www.rastko.co.uk/screenings/) - [**TWITTER**](https://twitter.com/singalongest) - [**INSTAGRAM**](https://www.instagram.com/inclinations_film_club/)  
+[**BIO**](https://www.rastko.co.uk/cv/) - [**SCREENINGS**](https://www.rastko.co.uk/screenings/)  
 **EMAIL** tetrys /// at /// posteo /// dot /// de  
 [**Buymeacoffee**](https://www.buymeacoffee.com/rastko)  
   
