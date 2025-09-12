@@ -6,7 +6,7 @@ permalink: /inclinations/
 
 ![inc](https://github.com/rosedetivoli/rosedetivoli.github.io/assets/22683802/3e11c914-6a22-4189-95d9-3a7628eb1b67)
 
-**INCLINATIONS** Film Club @ Glasgow CCA    
+**INCLINATIONS** Film Club @ Glasgow CCA / GMAC / GFT    
 [Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
     
 _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films. We aim to show Scottish premieres and films which do not get airings in UK festivals or cinemas. We celebrate different perspectives in style and standpoint as well as production methods. The origins of the film club date back to 2022 and the screenings of Peter Watkins's 14-hour peace film [The Journey](https://www.rastko.co.uk/resan/)._  
