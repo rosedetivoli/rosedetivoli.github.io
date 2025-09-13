@@ -23,7 +23,7 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 _Communist Photosynthesis_, in the book [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14)  
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_, Sight and Sound, Apr 2023  
 [Sabzian 'Passage' on Peter Watkins' Monoform](https://sabzian.be/text/passage-rastko-novakovi%C4%87-0), Feb 2023  
-[Sabzian 'Prisma' #51](https://sabzian.be/prisma/prisma-51) on the use of black frames in _The Journey_ by Peter Watkins, Oct 2022  
+[Sabzian 'Prisma' #51](https://sabzian.be/text/prisma-51) on the use of black frames in _The Journey_ by Peter Watkins, Oct 2022  
 [Interview with James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
 [Interview with Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
 [Interview with Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, Jul 2020  
