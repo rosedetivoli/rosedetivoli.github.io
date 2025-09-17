@@ -5,9 +5,9 @@ permalink: /all_works/
 ---
 
 ![he do](https://github.com/user-attachments/assets/cf8d1595-411b-4587-8aae-7f9035c90934)
-Still from: **he do the police in different voices (2025)**  
+Still: **he do the police in different voices** (2025)  
    
-[Roastbeef](https://www.rastko.co.uk/roastbeef/) (in post-production)  
+[Roastbeef](https://www.rastko.co.uk/roastbeef/) (40 min, 2025)  
 [he do the police in different voices](https://vimeo.com/1100904817?share=copy) (8 min, 2025)  
 [Re: A-bomb](https://vimeo.com/1040356303) (6.5 min, 2024)  
 [fifty shades of nato](https://vimeo.com/922681356/60cf5acab9) (1 min, 2024)  
