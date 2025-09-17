@@ -5,7 +5,7 @@ permalink: /movingimage/
 ---
 
 ![Beef](/images/beef.png)  
-Still from [Roastbeef](https://www.rastko.co.uk/roastbeef/) (in post-production)  
+Still from [Roastbeef](https://www.rastko.co.uk/roastbeef/) (2025)  
 
 **Below is a selection, for a full list of works, see [this page](https://rosedetivoli.github.io/all_works/).**  
   
