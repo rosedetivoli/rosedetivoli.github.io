@@ -18,7 +18,11 @@ Leo Bruges
 Marcin Knyziak  
 Robyn O'Donnell  
 Owen Saward  
+Adam Clarke  
 and Rastko Novaković  
   
-IN POST-PRODUCTION  
-January 2025  
+Dedicated to Nurşen Bakır and Cornelia Geiser  
+who do the work that needs doing   
+and remain surrounded by a deafening silence.  
+
+Press pack can be accessed [here](https://www.rastko.co.uk//images/Press%20Pack-ROASTBEEF.pdf).  
