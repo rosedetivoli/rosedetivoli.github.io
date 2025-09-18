@@ -19,5 +19,7 @@ His films have been shown internationally at: BFI Southbank (_British Film Insti
 In 2022, Rastko showed Peter Watkins's monumental 14-hour peace film _The Journey_, in [Glasgow](https://www.rastko.co.uk/resan/) and across venues in [Lithuania](https://ltmkm.lt/renginiai/peter-watkins-kelione-perziuros-peter-watkins-the-journey-screenings-06-10-30-10/). At VDFF in 2023 he co-curated [a small season](http://www.vdff.lt/en/festival/2023/program/daniele-huillet-and-jean-marie-straub-film-retrospective) of the films of Danièle Huillet and Jean-Marie Straub. Since 2023, he is the programmer of Glasgow-based [INCLINATIONS Film Club](https://www.rastko.co.uk/inclinations/) screening Scottish premieres of personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films. It doubles up as a [Book Club](https://www.rastko.co.uk/book-club/). 
 
 As one half of [Rebel Tango](https://www.rastko.co.uk/rebeltango/) he teaches queer tango since 2018.  
+
+He offers [solicited creative advice](https://www.rastko.co.uk/advice/) on film and moving image projects.   
   
 Over the years, he has been active in the anti-war, housing and trade union movements.  
