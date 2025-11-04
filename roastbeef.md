@@ -25,4 +25,6 @@ Dedicated to Nurşen Bakır and Cornelia Geiser
 who do the work that needs doing   
 and remain surrounded by a deafening silence.  
 
+To access the [screener](https://vimeo.com/1102478267?share=copy), send us an email.  
+  
 Press pack can be accessed [here](https://www.rastko.co.uk//images/Press%20Pack-ROASTBEEF.pdf).  
