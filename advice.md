@@ -13,9 +13,11 @@ If you are seeking advice and you think you could trust me to involve me in your
 **Rastko Novaković**, September 2025  
 
 
--------------------------
+-------------------------  
+
 **TESTIMONIALS**
--------------------------
+
+-------------------------  
 
 _'Rastko helped me realise a long-term research project that I had been struggling to finalise as a moving image work. The most beneficial aspect of the process was his consistent encouragement, which pushed me to trust my instincts. This was enormously valuable in shaping the timing, pacing, voice, and tone of the piece, as well as in navigating the dynamic with the curators who hosted the video as part of an exhibition._  
 
