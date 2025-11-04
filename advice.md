@@ -13,7 +13,17 @@ I have extensive experience and knowledge of the diverse histories of film style
 I will tell you what I see and what I see as the creative possibilities for your next steps.  
 This work is not editing, it's not mentoring, it's probably best described as midwifery.  
 If you are seeking advice and you think you could trust me to involve me in your creative process, I will honour that trust.  
+You can read some testimonials underneath.  
 Feel free to get in touch.  
   
 _Rastko Novaković,   
 September 2025_  
+
+
+-------------------------
+
+_'Rastko helped me realise a long-term research project that I had been struggling to finalise as a moving image work. The most beneficial aspect of the process was his consistent encouragement, which pushed me to trust my instincts. This was enormously valuable in shaping the timing, pacing, voice, and tone of the piece, as well as in navigating the dynamic with the curators who hosted the video as part of an exhibition. This was my first moving image work completed to such a high specification and involving multiple collaborators. Rastko's advice and attentive commentary drew out the elements of the project that I felt were most integral, rather than imposing an agenda or a didactic narrative. When sharing work in development, this kind of guidance is essential, as one can easily sublimate their creative drive in moments of doubt or insecurity. Rastko was like a guardian angel of determination—encouraging me to remain steadfast and supporting both my confidence and skills. Crucially, he also helped me recognise when the video was truly finished, allowing me to reach a sense of closure with pride and delight.'_  
+
+ Jude Browning, author of **Letters from Vivienne**, 2025  
+
+ -------------------------
