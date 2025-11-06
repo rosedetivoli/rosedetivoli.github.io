@@ -9,9 +9,9 @@ permalink: /writing/
 **ESSAYS, ARTICLES**  
 [Our Figures On Communist Grounds](https://networkcultures.org/blog/publication/out-now-post-communist-grounds-in-search-of-the-commons/), July 2025   
 [Communist Photosynthesis](https://sabzian.be/text/communist-photosynthesis), Sabzian, Oct 2023  
-[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - _Bill Douglas Cinema Museum_, Sep 2023  
+[‘Make them work for the gold.’ A few notes on the visual style of Bill Douglas](https://www.bdcmuseum.org.uk/news/make-them-work-for-the-gold-a-few-notes-on-the-visual-style-of-bill-douglas-as-illuminated-by-his-working-papers-by-rastko-novakovic/) - Sep 2023  
 [Sabzian 'Passage' on Peter Watkins' Monoform](https://sabzian.be/text/passage-rastko-novakovi%C4%87-0), Feb 2023  
-[Sabzian 'Prisma' #51](https://sabzian.be/text/prisma-51) on the use of black frames in _The Journey_ by Peter Watkins, Oct 2022  
+[Sabzian 'Prisma' #51](https://sabzian.be/text/prisma-51) on the use of black frames by Peter Watkins, Oct 2022  
 [How has the law affected BECTU’s ability to organise in the cinema industry?](https://rosedetivoli.github.io/trade_union_recognition/), 2015  
 [London’s cinema strikes represent 21st Century trade unionism at its best](https://opendemocracy.net/ourkingdom/rastko-novakovic/londons-cinema-strikes-represent-21st-century-trade-unionism-at-its-best), 2014  
 [An essay on the making of _lebensraum | living space_](https://rosedetivoli.github.io/images/lebensraum-essay2.pdf), 2009  
@@ -46,16 +46,16 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (I.B. Tauris, 2016)  
 
 **SRPSKI**  
-Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/) časopis ПРИЗОР, broj 13. 2014.  
+Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/), 2014  
 
 **LIETUVIŠKAI**  
-[Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas](https://www.zurnalaskinas.lt/is-arciau/2023-11-01/Istorijos-pamokos), kartu su Egidijus Mardosas, KINAS, 2023/5(374)  
+[Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas](https://www.zurnalaskinas.lt/is-arciau/2023-11-01/Istorijos-pamokos), KINAS 374  
   
 **TEXTS THAT SHOULD BE AVAILABLE ELSEWHERE**  
-Barbara Ulrich Straub [Lettre pour accompagner les projections des Straub-Huillet-films au VILNIUS DOCUMENTARY FILM FESTIVAL 2023](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
+Barbara Ulrich Straub [Lettre pour accompagner les projections des Straub-Huillet-films au VDFF 2023](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
 Charles Tesson [L'heure de vérité](https://rosedetivoli.github.io/images/verite.pdf) Cahiers du Cinéma, n394, April 1987  
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
 [Andrei Platonov and the prospect of some potatoes](https://rosedetivoli.github.io/platonov)  
-[In Memoriam - Darko Novaković](http://www.rastko.co.uk/darko/), 20/02/2018    
+Srđan Škoro [In Memoriam - Darko Novaković](http://www.rastko.co.uk/darko/), 20/02/2018    
 Aleksandar Vučo [Ćirilo i Metodije](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_cirilo.pdf) i [Nemenikuće](https://rosedetivoli.github.io/images/ALEKSANDAR_VUCO_nemenikuce.pdf), 1932  
