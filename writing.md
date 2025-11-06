@@ -52,7 +52,7 @@ Osvrt na "Skupljače perja" [_Snovi o slobodi ili daleko je Amerikkka_](http://p
 [Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas](https://www.zurnalaskinas.lt/is-arciau/2023-11-01/Istorijos-pamokos), KINAS 374  
   
 **TEXTS THAT SHOULD BE AVAILABLE ELSEWHERE**  
-Barbara Ulrich-Straub [Lettre pour accompagner les projections des Straub-Huillet-films, VDFF '23](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
+Barbara Ulrich-Straub [Lettre d'accompagnement des films Straub-Huillet, VDFF '23](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
 Charles Tesson [L'heure de vérité](https://rosedetivoli.github.io/images/verite.pdf) Cahiers du Cinéma, n394, April 1987  
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
