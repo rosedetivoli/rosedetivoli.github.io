@@ -46,13 +46,13 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (I.B. Tauris, 2016)  
 
 **SRPSKI**  
-Osvrt na "Skupljače perja" Aleksandra Petrovića [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/), 2014  
+Osvrt na "Skupljače perja" [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/), 2014  
 
 **LIETUVIŠKAI**  
 [Istorijos pamokos - Danièle Huillet ir Jeanas-Marie Straubas](https://www.zurnalaskinas.lt/is-arciau/2023-11-01/Istorijos-pamokos), KINAS 374  
   
 **TEXTS THAT SHOULD BE AVAILABLE ELSEWHERE**  
-Barbara Ulrich Straub [Lettre pour accompagner les projections des Straub-Huillet-films au VDFF 2023](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
+Barbara Ulrich-Straub [Lettre pour accompagner les projections des Straub-Huillet-films, VDFF '23](https://rosedetivoli.github.io/images/Lettre_VDFF.pdf)  
 Charles Tesson [L'heure de vérité](https://rosedetivoli.github.io/images/verite.pdf) Cahiers du Cinéma, n394, April 1987  
 [James Kelman’s Booker Prize acceptance speech](https://rosedetivoli.github.io/kelman/) in 1994  
 Danilo Kiš [On Nationalism](https://rosedetivoli.github.io/kis), 1973  
