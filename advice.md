@@ -10,12 +10,13 @@ I have extensive experience and knowledge of the diverse histories of film style
 
 If you are seeking advice and you think you could trust me to involve me in your creative process, I will honour that trust. Feel free to get in touch and read some testimonials underneath.  
   
-**Rastko Novaković**, September 2025  
+**Rastko Novaković**  
+September 2025  
 
 
 -------------------------  
 
-**TESTIMONIALS**
+**TESTIMONIALS:**
 
 -------------------------  
 
@@ -26,5 +27,13 @@ _This was my first moving image work completed to such a high specification and 
 _Rastko was like a guardian angel of determination—encouraging me to remain steadfast and supporting both my confidence and skills. Crucially, he also helped me recognise when the video was truly finished, allowing me to reach a sense of closure with pride and delight.'_  
 
 **Jude Browning**, author of _Letters from Vivienne_ (2025)  
+
+ -------------------------
+
+_'A shining constant from shooting to post-production for 'The Tobacconist' was Rastko’s reminder to follow my instincts. In between takes, he proposed the actor tinkle with a spoon, helping accentuate narrative tension. It was a helpful first two days to remain attentive to such primal details._  
+  
+_Very hands-on during post,  he devised paper edits, blueprinting the film’s manifold structural potentials. This helped outline and (re)discover the film’s tone, pace and the main perspective to be conveyed. More than a professional guide, Rastko helped myself and the producer find our feet again after, at times, mentally taxing post-production process and festival demands.'_  
+
+**Keifer Nyron Taylor**, writer and director of _The Tobacconist_ (2024)  
 
  -------------------------
