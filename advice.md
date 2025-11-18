@@ -37,3 +37,8 @@ _Very hands-on during post,  he devised paper edits, blueprinting the film’s m
 **Keifer Nyron Taylor**, writer and director of _The Tobacconist_ (2024)  
 
  -------------------------
+
+_'I sent Rastko a short film that was faltering in post-production. I immediately sensed he could see its essential intentions and without any preconceptions, he offered me simple and encouraging notes. These were precise and technical points of adjustment and words of appreciation that I very much needed. What more can you ask for than the reassuring feeling that an advisor figure can see the essence of what you are trying to make, whatever it is. From that point, all of Rastko's advice nudged my film towards being what I wanted it to be, even when I had started to forget.'_  
+
+**Eric Gilmore**, author of _Dinas Emrys_ (2025)  
+  
