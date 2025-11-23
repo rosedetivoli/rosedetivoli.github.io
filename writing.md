@@ -39,7 +39,7 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 
 **BOOKS AND BOOK CHAPTERS**  
 [For Peace!](https://maydayrooms.org/publication/for-peace/) (co-edited, Mayday Rooms, 2025)  
-[The Palgrave Encyclopedia of Cultural Heritage and Conflict](https://link.springer.com/book/9783031557477) (co-authored, Palgrave, 2026)​  
+[The Palgrave Encyclopedia of Cultural Heritage and Conflict](https://link.springer.com/rwe/10.1007/978-3-030-61493-5_140-1) (co-authored, Palgrave, 2026)​  
 [Post-Communist Grounds. In Search of the Commons](https://networkcultures.org/blog/publication/out-now-post-communist-grounds-in-search-of-the-commons/) (INC, 2025)  
 [All We Have Is the Story: Interviews 1973–2022 - James Kelman](https://pmpress.org.uk/product/all-we-have-is-the-story/) (PM Press, 2024)  
 [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14) (Legenda, 2023)  
