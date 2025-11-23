@@ -4,6 +4,11 @@ title: Recent screenings
 permalink: /screenings/ 
 ---
 
+
+**2026**  
+  
+**fifty shades of nato** - One Minutes, Vol 12 - La Nuit Blanche, Montreal - Feb 28 
+  
 **2025**  
 
 **Concrete Heart Land** - [Community Ecosystems](https://taco.org.uk/Community-Ecosystems-Screening) at Taco! - 13 Dec  
