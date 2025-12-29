@@ -38,13 +38,17 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 [Steven Ball interview](http://web.archive.org/web/20141028110639/http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video _Sundays in Majdanpek_, 2008  
 
 **BOOKS AND BOOK CHAPTERS**  
-[For Peace!](https://maydayrooms.org/publication/for-peace/) (co-edited, Mayday Rooms, 2025)  
+[For Peace!](https://maydayrooms.org/publication/for-peace/) (co-edited, Mayday Rooms, 2026)  
 [The Palgrave Encyclopedia of Cultural Heritage and Conflict](https://link.springer.com/rwe/10.1007/978-3-030-61493-5_140-1) (co-authored, Palgrave, 2026)​  
 [Post-Communist Grounds. In Search of the Commons](https://networkcultures.org/blog/publication/out-now-post-communist-grounds-in-search-of-the-commons/) (INC, 2025)  
 [All We Have Is the Story: Interviews 1973–2022 - James Kelman](https://pmpress.org.uk/product/all-we-have-is-the-story/) (PM Press, 2024)  
 [The Cinema of Danièle Huillet and Jean-Marie Straub](http://www.mhra.org.uk/publications/mi-14) (Legenda, 2023)  
 [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (I.B. Tauris, 2016)  
 
+**FICTION**  
+Umbra - a reverie (2026)  
+Not Guilty - an annihilation in seven chapters (2022)  
+  
 **SRPSKI**  
 Osvrt na "Skupljače perja" [_Snovi o slobodi ili daleko je Amerikkka_](http://pescanik.net/snovi-o-slobodi-ili-daleko-je-amerikkka/), 2014  
 
