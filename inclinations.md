@@ -10,7 +10,9 @@ permalink: /inclinations/
 [Instagram](https://www.instagram.com/inclinations_film_club/) - [Twitter](https://twitter.com/inclinations_fc)  
     
 _A volunteer-run film club bringing personal, DIY, slow cinema, experimental, queer, poetic, political, confrontational films. We aim to show Scottish premieres and films which do not get airings in UK festivals or cinemas. We celebrate different perspectives in style and standpoint as well as production methods. The origins of the film club date back to 2022 and the screenings of Peter Watkins's 14-hour peace film [The Journey](https://www.rastko.co.uk/resan/). We also run a [book club](https://www.rastko.co.uk/book-club/)._  
-
+  
+An archive of recorded discussions can be found [here](https://archive.org/search?query=creator%3A%22Inclinations+Book+Club+-+Inclinations+Film+Club%22).  
+  
 **2023**  
   
 8 Feb - [Just Don't Think I'll Scream](https://www.cca-glasgow.com/programme/just-dont-think-ill-scream) - Frank Beauvais - Scottish premiere  
