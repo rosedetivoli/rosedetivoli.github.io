@@ -48,6 +48,6 @@ An archive of recorded discussions can be found [here](https://archive.org/searc
   
 **2026**  
 
-18 Feb - [See You Friday, Robinson](https://www.cca-glasgow.com/programme/video-letters-double-bill) (Mitra Farahani, 2022) & [An Image to Follow - Exquisite Corpse](https://www.cca-glasgow.com/programme/video-letters-double-bill) (Anthea Kennedy & Tatia Shé, 2025)  
+18 Feb - [See You Friday, Robinson](https://www.glasgowfilm.org/movie/inclinations-film-club-video-letters-double-bill) (Mitra Farahani, 2022) & [An Image to Follow - Exquisite Corpse](https://www.glasgowfilm.org/movie/inclinations-film-club-video-letters-double-bill) (Anthea Kennedy & Tatia Shé, 2025)  
 24 Mar - [Earth's Greatest Enemy](https://www.glasgowfilm.org/movie/earths-greatest-enemy-qa) (Abby Martin, 2025)  
 24 Apr - Distracted Blueberry (Barry Doupé, 2019)  
