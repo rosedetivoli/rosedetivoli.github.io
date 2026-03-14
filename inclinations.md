@@ -43,11 +43,10 @@ An archive of recorded discussions can be found [here](https://archive.org/searc
 13 Mar - [Pouring Water on Troubled Oil + A Fire](https://www.cca-glasgow.com/programme/change-of-venue-water-on-oil) - Nariman Massoumi & Ebrahim Golestan - Glasgow premiere    
 8 Apr - [Fragments, wholes and One Minutes](https://www.cca-glasgow.com/programme/fragments-wholes-and-one-minutes) mix of Scottish and UK premieres   
 18 May - [The Empire](https://www.glasgowfilm.org/movie/the-empire/) - Bruno Dumont - Scottish premiere  
-19 Jun - [Rosetta (35mm)](https://www.cca-glasgow.com/programme/rosetta-35mm) - Dardnenne brotheres   
+19 Jun - [Rosetta (35mm)](https://www.cca-glasgow.com/programme/rosetta-35mm) - Dardenne brotheres   
 29 Jun - [To Kill A War Machine](https://web.archive.org/web/20250705232454/https://www.eventbrite.co.uk/e/to-kill-a-war-machine-inclinations-film-club-x-gmac-tickets-1437420586669) - Rainbow Collective - Scottish premiere  
   
 **2026**  
 
 18 Feb - [See You Friday, Robinson](https://www.glasgowfilm.org/movie/inclinations-film-club-video-letters-double-bill) (Mitra Farahani, 2022) & [An Image to Follow - Exquisite Corpse](https://www.glasgowfilm.org/movie/inclinations-film-club-video-letters-double-bill) (Anthea Kennedy & Tatia Shé, 2025)  
 24 Mar - [Earth's Greatest Enemy](https://www.glasgowfilm.org/movie/earths-greatest-enemy-qa) (Abby Martin, 2025)  
-24 Apr - Distracted Blueberry (Barry Doupé, 2019)  
