@@ -11,4 +11,4 @@ Matt Kennard - [**The Racket**](https://www.cca-glasgow.com/programme/the-racket
 Peter Gelderloos - [**They Will Beat the Memory Out Of Us**](https://www.cca-glasgow.com/programme/they-will-beat-the-memory-out-of-us) - 03/03/2025  
 Neda Genova et al - [**Post-Communist Grounds**](https://www.cca-glasgow.com/programme/post-communist-grounds-in-search-of-the-commons) - 09/10/2025  
 Kate Wilson - [**Disclosure: Unravelling the Spycops Files**](https://www.cca-glasgow.com/programme/disclosure-unravelling-the-spycops-files) - 28/11/2025  
-Chris Rossdale - [**Resisting Militarism**](https://www.cca-glasgow.com/programme/resisting-militarism) - 10/01/2026   
+Chris Rossdale - [**Resisting Militarism**](https://www.cca-glasgow.com/programme/resisting-militarism) - 10/01/2026 - [Audio](https://archive.org/details/resisting-militarism-inclinations-cca-10-01-2026)     
