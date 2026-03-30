@@ -27,15 +27,16 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_, Sight and Sound, Apr 2023  
 
 **INTERVIEWS**  
-[11 Questions for Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, Oct 2024  
-[Interview with Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
-[Interview with Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
-[Interview with Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
-[Interview with Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/), Conter, Apr 2023  
-[Interview with James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
-[Interview with Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
-[Interview with Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, Jul 2020  
-[Steven Ball interview](http://web.archive.org/web/20141028110639/http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video _Sundays in Majdanpek_, 2008  
+[Abby Martin](https://www.commonweal.scot/articles/earths-greatest-enemy), Common Weal/The National, Mar 2026  
+[Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, Oct 2024  
+[Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
+[Nurşen Bakır](https://www.conter.scot/2023/12/11/event-documenting-the-battle-of-fatsa/), Conter, Dec 2023  
+[Heinz Emigholz](https://www.sabzian.be/text/sculptures-in-time), Sabzian, Nov 2023  
+[Roger Stahl](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/), Conter, Apr 2023  
+[James Kelman](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/) for Salvage, 2022  
+[Paul Mendez](https://www.thewhitereview.org/feature/interview-with-paul-mendez/) for The White Review, 2021  
+[Lucy Ellmann](https://www.thewhitereview.org/issue/issue-no-28/) for The White Review, Issue No. 28, Jul 2020  
+[Steven Ball interviews me](http://web.archive.org/web/20141028110639/http://www.studycollection.co.uk/sundaysinmajdanpek/) regarding my video _Sundays in Majdanpek_, 2008  
 
 **BOOKS AND BOOK CHAPTERS**  
 [For Peace!](https://maydayrooms.org/publication/for-peace/) (co-edited, Mayday Rooms, 2026)  
