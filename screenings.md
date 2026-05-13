@@ -7,8 +7,8 @@ permalink: /screenings/
 
 **2026**  
 
-**Roastbeef** - CINEMÍSTICA encounters, Granada - Jun 20  
-**Caprice** - 'Ronald Firbank: A Centenary Symposium', London - May 22  
+**Roastbeef** - 12th Cinemística Film Festival, Granada - Jun 20  
+**Caprice** - 'Ronald Firbank: A Centenary Symposium', organised by Kate Hext, London - May 22  
 **fifty shades of nato** - One Minutes, Vol 12 - La Nuit Blanche, Montreal - Feb 28 
   
 **2025**  
