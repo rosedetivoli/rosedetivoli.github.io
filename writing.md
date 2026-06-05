@@ -27,6 +27,7 @@ Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_, Sight and Sound, Apr 2023  
 
 **INTERVIEWS**  
+[Rainbow Collective](), The National, Jun 2026  
 [Abby Martin](https://www.commonweal.scot/articles/earths-greatest-enemy), Common Weal/The National, Mar 2026  
 [Alain Cavalier](https://sabzian.be/text/11-questions-for-alain-cavalier), Sabzian, Oct 2024  
 [Talia Lugacy](https://www.conter.scot/2024/1/16/the-veterans-forgotten-by-the-war-state/), Conter, Jan 2024  
