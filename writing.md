@@ -22,7 +22,7 @@ An essay on space and time in movies: [Notes on Articulation of Space and Time](
 **REVIEWS, CRITICISM**    
 CineMasters: Bill Douglas, season at Glasgow Film Theatre, [programme notes](https://web.archive.org/web/20241204215233/https://letterboxd.com/glasgowfilm/story/cinemasters-bill-douglas/), Dec 2024  
 [Review of _SweetBitter_ by Nat Walpole](https://snackmag.co.uk/sweetbitter-review), Snackmag, Nov 2024    
-Review of _My Cinema by Marguerite Duras_, Sight and Sound, Mar 2024  
+[Review of My Cinema by Marguerite Duras](https://rosedetivoli.github.io/images/duras.jpg), Sight and Sound, Mar 2024  
 [Review of _Counter Gravity: The Films of Heinz Emigholz_](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), Film International, Dec 2023  
 [Review](https://rosedetivoli.github.io/images/SnS_Douglas_2023.pdf) of _Bill Douglas: A Film Artist_, Sight and Sound, Apr 2023  
 
