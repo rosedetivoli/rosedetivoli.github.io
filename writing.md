@@ -48,7 +48,7 @@ CineMasters: Bill Douglas, season at Glasgow Film Theatre, [programme notes](htt
 [Engaged Urbanism: Cities and Methodologies](https://www.bloomsbury.com/uk/engaged-urbanism-9781784534592/) (I.B. Tauris, 2016)  
 
 **FICTION**  
-Umbra - a reverie (2026)  
+[Umbra](https://rosedetivoli.github.io/images/extract_umbra.pdf) - a reverie (2026)  
 Not Guilty - an annihilation in seven chapters (2022)  
   
 **SRPSKI**  
