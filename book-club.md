@@ -4,7 +4,8 @@ title:  Inclinations Book Club
 permalink: /book-club/  
 ---  
 
-![he_do_the_police](https://github.com/user-attachments/assets/308c54d1-5bfe-49f8-a16e-89fa0581b329)
+<img width="1920" height="2000" alt="books" src="https://github.com/user-attachments/assets/e8a50c96-29d0-4b7b-ab6c-3f0d9b86703e" />
+
     
 James Kelman - **The State Is the Enemy** - 29/11/2023 - [Audio recording](https://archive.org/details/james-kelman-inclinations-film-club-29-nov-2023)  
 Matt Kennard - [**The Racket**](https://www.cca-glasgow.com/programme/the-racket-a-rogue-reporter-vs-the-american-empire) - 05/11/2024 - [Audio recording](https://archive.org/details/matt-kennard-cca-05-nov-2024)  
