@@ -28,3 +28,9 @@ Book tickets for all Glasgow CCA screenings in June [here](https://ccaglasgow.ti
 [Essay on the media crisis by Peter Watkins from 2010](http://www.ocec.eu/cinemacomparativecinema/index.php/en/11-materiales-web/387-notes-on-the-media-crisis)   
   
 **Thank you**: Peter Watkins, Cécile Farkas (Doriane Films), Prof. Ken Nolley, Sam and Susan Smillie, Malcolm Maclean, Sam Maynard, Shelley Douglass, James Kelman, Murdo Macleod, Iain Morrison, Elizabeth Peters (Willamette University Library), Angie Zelter & Trident Ploughshares, Storm Patterson (BFI Special Collections), Tatia Shaburishvili, Jan Pester, Eleanor Watkins (BFI Library), Carolyn Wilson, Keifer Taylor, Kieron Corless, Neil Gray, Alex Impey, Gareth Evans, Helen Hughes, Matthias Kispert, Megan Fraser, Kitty Anderson (Lux Scotland), Prof. Scott Macdonald, Fiona Montgomery, Prof. Concha Mateos, for CCA: Francis Mckee, Annie Hazelwood, Clara Bondier, Kenny Christie and Alex Misick.    
+
+P.S. We also did another round of screenings across Lithuania 6-30 October 2022 - more info [here](https://ltmkm.lt/renginiai/peter-watkins-kelione-perziuros-peter-watkins-the-journey-screenings-06-10-30-10/).  
+
+P.P.S. I wrote a couple of short pieces on Watkins and Resan here:  
+[On the use of black screens](https://sabzian.be/text/prisma-51)  
+[On the Monoform](https://sabzian.be/text/passage-rastko-novakovi%C4%87-0)  
