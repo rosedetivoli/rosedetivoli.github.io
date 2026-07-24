@@ -6,8 +6,11 @@ permalink: /all_works/
 
 ![he do](https://github.com/user-attachments/assets/cf8d1595-411b-4587-8aae-7f9035c90934)
 Still: **he do the police in different voices** (2025)  
-   
-[Roastbeef](https://www.rastko.co.uk/roastbeef/) (40 min, 2025)  
+  
+**2026 - onwards**    
+[Roastbeef](https://www.rastko.co.uk/roastbeef/) (40 min, 2026)  
+  
+**2021 - 2025**    
 [he do the police in different voices](https://vimeo.com/1100904817?share=copy) (8 min, 2025)  
 [Re: A-bomb](https://vimeo.com/1040356303) (6.5 min, 2024)  
 [fifty shades of nato](https://vimeo.com/922681356/60cf5acab9) (1 min, 2024)  
@@ -20,6 +23,8 @@ Still: **he do the police in different voices** (2025)
 [Pravilni pesak](https://vimeo.com/611823350/a0bcbc9b02) (with Beatričė Bukantytė, 6.5 min, 2021)  
 Er saw... (2 min, 2021)  
 [Pelyno Marija / Wormwood Maria](https://rosedetivoli.github.io/wormwoodmaria/) (with Beatričė Bukantytė, 29 min, 2021)     
+  
+**2016 - 2020**    
 [Social order at the expense of liberty is hardly a bargain](https://vimeo.com/493358286/7b76ac976d) (5.5 min, 2020)  
 [for Black prophetic fire](https://vimeo.com/435354036/5e34990267) (6 min, 2020)  
 [A divine comedy](https://vimeo.com/426704656/ef19f6ce96) (1 min, 2020)  
@@ -30,12 +35,16 @@ time is sweet and salty in its revolutions (1 min, 2020)
 [Where Were You in 1992?: Surveillance Monitoring](https://1992.maydayrooms.org/surveillance.html) (with Amanda Egbe, 9.5 mins, 2019)  
 [Where Were You in 1992?: Rumours of War](https://1992.maydayrooms.org/rumours.html) (with Amanda Egbe, 14 min, 2018)   
 [Cinemembrane](https://www.rastko.co.uk//images/cinemembrane_Full_Flyer.pdf) (a modest proposal, with Amanda Egbe, 2016)  
+  
+**2011 - 2015**    
 [Concrete Heart Land](http://concreteheartland.info) (with Steven Ball, 25 min, 2014)   
 [Villages](https://www.youtube.com/watch?v=4qBcCHTn-ic) music video for The Sea Kings (with Amanda Egbe, 4 min, 2013)   
 [April Showers](https://rosedetivoli.github.io/april_showers/) (43 min, 2011)   
 [Ripples](https://rosedetivoli.github.io/april_showers/) (45 min, 2011)   
 [Excerpts of a Conversation](https://amp.0x2620.org/BPQ/player) (3.5 min, 2011, with persons unknown)   
 [Geopolitical Everyday blog](https://geopoliticaleveryday.wordpress.com/) (2010-2011)   
+  
+**2006 - 2010**    
 [Words From a Police Kettle](https://amp.0x2620.org/BPO/player) (3 min, 2010, with persons unknown)   
 [Waldron Panorama](https://rosedetivoli.github.io/waldron/) (with Amanda Egbe, public installation, Oct 2010 – Feb 2011)   
 [Whose Fitzrovia? interview with Anna Minton](https://rosedetivoli.github.io/april_showers/) (8 min, 2010)   
@@ -54,7 +63,9 @@ SPACEPLACE (with Amanda Egbe, 2008)
 [Operations](http://www.georgeandclark.com/2018/05/11/get-out-and-push-focal-point-gallery-2018/) (with Free Cinema Seven, 2007)   
 [Between Clock and Bed](http://www.studycollection.org.uk/works/between-clock-and-bed) (20 min, 2007)   
 [Sundays in Majdanpek](https://rosedetivoli.github.io/sundaysinmajdanpek/) (32 min, 2007)  
-[Postcard](https://vimeo.com/440819429) (13.5 min, 2006)   
+Postcard (13.5 min, 2006)   
+
+**2000 - 2005**    
 Tracing Spaces (with Open Script, 2005)   
 [Tomorrow and the Day Before](https://rosedetivoli.github.io/tadb/) (14 min, 2004)  
 For Anna Schmidt (2003)  
