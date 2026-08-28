@@ -61,7 +61,7 @@ Imprints (2009)
 SPACEPLACE (with Amanda Egbe, 2008)   
 [To NATO with love](https://rosedetivoli.github.io/nato/) (24 min, 2008)   
 [Operations](http://www.georgeandclark.com/2018/05/11/get-out-and-push-focal-point-gallery-2018/) (with Free Cinema Seven, 2007)   
-[Between Clock and Bed](http://www.studycollection.org.uk/works/between-clock-and-bed) (20 min, 2007)   
+[Between Clock and Bed](https://vimeo.com/1222110682/4af03b8f95) (20 min, 2007)   
 [Sundays in Majdanpek](https://rosedetivoli.github.io/sundaysinmajdanpek/) (32 min, 2007)  
 Postcard (13.5 min, 2006)   
 
