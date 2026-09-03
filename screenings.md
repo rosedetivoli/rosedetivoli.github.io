@@ -7,6 +7,7 @@ permalink: /screenings/
 
 **2026**  
   
+**Song for Three Soldiers** - DV8 Film Club Showcase, Glasgow - 16/17 Oct   
 **So kindly to the cold stone is the fire…** - One Rooftop Exhibition by Wang Xinyi, London - 24 Aug  
 **Roastbeef** - 12th Cinemística Film Festival, Granada - Jun 20  
 **Caprice** - ['Ronald Firbank: A Centenary Symposium'](https://web.archive.org/web/20260513112512/https://www.eventbrite.com/e/ronald-firbank-a-centenary-symposium-tickets-1986512093146?aff=ebdssbdestsearch), London - May 22  
