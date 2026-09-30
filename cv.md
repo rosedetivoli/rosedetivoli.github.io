@@ -3,12 +3,12 @@ layout: page
 title: Bio
 permalink: /cv/
 ---
-
-On a good day, I might be making films, writing, curating book/film events, archiving social movements or dancing tango.
-
-I have co/authored over 60 moving image [works](https://www.rastko.co.uk/all_works/), ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. I have exhibited sound pieces, outdoor installations, as well as a 15 meter long site-specific panorama.  
   
-Over the years, I have worked on video activist and DIY media projects with a feminist antimilitarist group ([Women in Black](http://zeneucrnom.org/index.php?lang=en), Serbia), a climate justice group (Climate Camp, UK) and [London Indymedia](https://imc.maydayrooms.org/). I was Coordinator of the [Activist Media Project](https://amp.maydayrooms.org/) based at [MayDay Rooms](https://maydayrooms.org/) between 2018 and 2025.  
+On a good day, I might be making films, writing, curating book/film events, archiving social movements or dancing tango.   
+
+I was born in Yugoslavia in 1981. Over the years, working mainly in England (but also Lithuania, Serbia and Scotland), I have co/authored over 60 moving image [works](https://www.rastko.co.uk/all_works/), ranging from 1 minute lyrical films, to feature length documentaries, experimental docu-fictions, campaigning films, music videos and multi-platform videos. I have exhibited sound pieces, outdoor installations, as well as a 15 meter long site-specific panorama.  
+  
+I have worked on video activist and DIY media projects with a feminist antimilitarist group ([Women in Black](http://zeneucrnom.org/index.php?lang=en), Serbia), a climate justice group (Climate Camp, UK) and [London Indymedia](https://imc.maydayrooms.org/). I was Coordinator of the [Activist Media Project](https://amp.maydayrooms.org/) based at [MayDay Rooms](https://maydayrooms.org/) between 2018 and 2025.  
 
 My writing has been published in: [Salvage](https://salvage.zone/existence-is-a-guerilla-campaign-an-interview-with-james-kelman/), [Sabzian](https://sabzian.be/authors/rastko-novakovic), [Sight and Sound](https://www.bfi.org.uk/sight-and-sound), [The White Review](https://www.thewhitereview.org/), [Conter](https://www.conter.scot/2023/4/10/theatres-of-war-exposing-the-military-entertainment-complex/), [Film International](https://filmint.nu/counter-gravity-the-films-of-heinz-emigholz-book-review-rastko-novakovic/), [The National](https://www.thenational.scot/search/?search=rastko&sort=relevance&headline_only=false&site_id[]=1106&posted_date=%20+%20&pp=20&p=0), [Peščanik](https://pescanik.net/author/rastko-novakovic/). 
   
