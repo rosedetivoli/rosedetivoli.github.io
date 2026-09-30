@@ -7,6 +7,7 @@ permalink: /screenings/
 
 **2026**  
   
+**Song for Three Soldiers** - Screamstation Fest, London - 13/14 Nov  
 **Song for Three Soldiers** - DV8 Film Club Showcase, Glasgow - 16/17 Oct   
 **So kindly to the cold stone is the fire…** - One Rooftop Exhibition by Wang Xinyi, London - 24 Aug  
 **Roastbeef** - 12th Cinemística Film Festival, Granada - Jun 20  
